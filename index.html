@@ -1,0 +1,13 @@
+<!DOCTYPE html>
+<html>
+<head>
+
+</head>
+<body>
+	{{ page.content | number_of_words }}
+	{% capture sidebar %}
+		{% include poisoned-well.md %}
+	{% endcapture %}
+	{{ poisoned-well | markdownify }}
+</body>
+</html>
