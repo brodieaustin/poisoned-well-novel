@@ -8,7 +8,7 @@ title: Poisoned Well Novel
 </head>
 <body>
 	{{ page.content | number_of_words }}
-	{% capture sidebar %}
+	{% capture poisoned-well %}
 		{% include poisoned-well.md %}
 	{% endcapture %}
 	{{ poisoned-well | markdownify }}
