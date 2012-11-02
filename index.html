@@ -5,10 +5,13 @@ title: The Poisoned Well
 <html>
 <head>
 	<style>
-		body{width: 80%; font-size: 150%;}
+		body{width: 80%; margin: 0 auto; font-size: 150%;}
 	</style>
 </head>
 <body>
-{% include poisoned-well.md %}
+{% capture poisoned-well %}
+    {% include poisoned-well.md %}
+  {% endcapture %}
+  {{ poisoned-well | markdownify}}
 </body>
 </html>
