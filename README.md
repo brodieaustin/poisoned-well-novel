@@ -1,4 +1,3 @@
-The Poisoned Well
-=================
+#The Poisoned Well#
 
-My NaNoWriMo novel and repo for 2012.
+My NaNoWriMo novel for 2012.
