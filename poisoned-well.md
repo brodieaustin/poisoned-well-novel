@@ -1,6 +1,17 @@
 ---
 title: The Poisoned Well
 ---
+<!DOCTYPE html>
+<html>
+<head>
+	<style>
+		body{width: 70%; font-size: 150%;}
+		h1, h2{text-align: center;}
+		h1{color: #888;}
+		hr { display: block; height: 1px; width: 90% !important; border: 0; border-top: 1px solid #EEE; margin: 2em auto 1em auto; padding: 0; }
+	</style>
+</head>
+<body>
 #The Poisoned Well#
 
 ##Chapter One##
@@ -61,4 +72,5 @@ Without comment, Manan picked up the girl and tried to work through the rest of 
 
 When they stepped out of the woods onto the narrow road, Manan saw the woman's cart and shaggy oxen harnassed to it. "Get it and we'll be away from here soon enough. Be careful with the girl. I don't need by livlihood going up in flames," she said.
 
-
+</body>
+</html>
