@@ -1,7 +1,7 @@
 ---
+layout: page
 title: The Poisoned Well
 ---
-{% include base.css %}
 #The Poisoned Well#
 
 {{ page.content | number_of_words }} words
