@@ -99,3 +99,37 @@ One particular bit was the woman's name. She though that she had heard someone a
 Wrapped up as tight in these inner convolutions as she was in her rough spun cloak and coverings, she didn't hear to woman calling her over to sit. When she did hear, she came over to the back of the wagon. The woman sat there with a handful of something. She offered them to Manan and said, "Chew these for your hunger. I don't have much else right now."
 
 The wrinkled hard seeds became tacky and chewy as Manan tried to eat them. Deciding that she couldn't chew them, she settled on sucking on a handful of them in the back of her check. Whatever they were, she felt revitalized very quickly, ready to continue their...journey.
+
+***
+
+[update](#update)As the wagon rocked and bounced over those hard ice roads, Manan swayed in and out of sleep. Several hours after the break, the wagon lurched to a stop. Manan's eyes opened wide at the sound of a man's voices. The girl was still asleep. Hopefully she would stay that way. Reflexively she felt her hand drift ot he knife at her waist. It would be useless to fight if they discovered her, but her instincts were tuned this way. So, she didn't resist them and palmed the worn wooden hilt. 
+
+She could only just make out what was happening outside, but she heard the woman assert, "You've no claim to search me..." Then an argument ensued. The wagon rocked back and forth. The quarrel was agitating the beast. The woman tried to calm it. Manan twisted slighly to press her ear closer to the wagon's bottom to hear better.
+
+"My people passed untouched. That's a right we have."
+
+"Rights ent meant for smugglers," said a man's voice. If there was only one voice and one man, Manan assumed that the woman would dispatch him as easily as she had Cotton.
+
+But there was another voice, "Words gotten around. The villages have been put on alert...two girls and maybe a Water Woman accomplice. And we look after our own..."
+
+By rights they weren't able to search her wagon, Manan knew. The Water Women could not be seized, jailed, or otherwise molested. It had always been that way. But that didn't stop a heavy pair of boots from stomping overhead in the wagon. A man, smelling of smoke and ale, began rifling through the wagon. With the coverings over the floor, Manan couldn't see where he was, but could hear each creak on the floor boards and feel them press closer to her face under the man's weight.
+
+The man shouted out, "Nothing in her but the dame's old pots..." His voice was loud and harsh after all of the muffled rattling and shuffling. The sound woke the girl up, her eyes perfectly round and bright all of a sudden. She was bound very tightly in her covering but tried to thrash regardless. Before she could cry out, Manan gripped her mouth tightly.
+
+The bright big eyes just stared back at her stupidly, only animated by animal fear. Manan could hear the man muttering, "Queer cart...what's that sound...awful hot in here..." Then a pot shattered on the ground. And another. Another one again.
+
+The wagon bounced. The woman had jumped down. The men raised their cries. Manan could hear a bow being drawn and quarterstaffs knocking violently against each other. A man cried out in pain. Another one cursed the woman's sex and invoked the gods too. Manan heard the bow release and thud into something, a tree? A woman? She couldn't tell.
+
+But a crackle of bone and a squish of flesh followed the thud. Another pot crashed loudly to the ground before the cart was rid of the intruder and his boots. A loud oopmh then a plea for mercy. "You defiled me and my trade. You broke the ancient pacts. By law I can and will kill you." the woman said. And then the intruder and his boots died a loud but quick death.
+
+With that, Manan was staring up at the woman's face. She had a large red welt on the side of her face. It wasn't until Manan sat up that she saw an arrow poking out from the woman's side and blood flowing freely over her clothing, coloring the wagon's covering red. "You're hurt," she said.
+
+"Yes, but I will survive. You'll help me. I need you to drive the cart."
+
+"But where are we going."
+
+"Some place safe and not far, but I will be too weak to drive soon. The beast knows the way. I have whispered it to him, but we can't have a riderless wagon along these roads, especially at night and especially where we're going. Go up front a drive. Now."
+
+Manan usually didn't take commands well, but she listened to the woman's strained order. She jumped out of the wagon and ran to front. Around her, six men lay dead; seven counting the one who had searched the wagon. Good riddance, she thought, though not exactly sure why. Had these been bad men? Perhaps, but they had crossed lines that weren't meant to be crossed. Lines that were recognized and acknowledged and held firmly in place. 
+
+Whether she too had crossed such lines didn't occur to her as she took up the stiff reins. The beast lurched forth now that it senesed a driver in place. Manan didn't know how to drive an animal, but the woman was right. The beast seemed to know where it was going.
