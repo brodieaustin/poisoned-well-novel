@@ -96,7 +96,7 @@ The wrinkled hard seeds became tacky and chewy as Manan tried to eat them. Decid
 
 ***
 
-[update](#update)As the wagon rocked and bounced over those hard ice roads, Manan swayed in and out of sleep. Several hours after the break, the wagon lurched to a stop. Manan's eyes opened wide at the sound of a man's voices. The girl was still asleep. Hopefully she would stay that way. Reflexively she felt her hand drift ot he knife at her waist. It would be useless to fight if they discovered her, but her instincts were tuned this way. So, she didn't resist them and palmed the worn wooden hilt. 
+As the wagon rocked and bounced over those hard ice roads, Manan swayed in and out of sleep. Several hours after the break, the wagon lurched to a stop. Manan's eyes opened wide at the sound of a man's voices. The girl was still asleep. Hopefully she would stay that way. Reflexively she felt her hand drift ot he knife at her waist. It would be useless to fight if they discovered her, but her instincts were tuned this way. So, she didn't resist them and palmed the worn wooden hilt. 
 
 She could only just make out what was happening outside, but she heard the woman assert, "You've no claim to search me..." Then an argument ensued. The wagon rocked back and forth. The quarrel was agitating the beast. The woman tried to calm it. Manan twisted slighly to press her ear closer to the wagon's bottom to hear better.
 
