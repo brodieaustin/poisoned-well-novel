@@ -6,6 +6,8 @@ title: The Poisoned Well
 
 {{ page.content | number_of_words }} words
 
+Go to [the last update](#update).
+
 ##Chapter One##
 
 The arrows, hurtled from the dark recesses of the trees, fell around them, skidding stupidly along the ice. Manan, running at full tilt, felt giddy and powerful and terrified all at the same time. The other girl, whose hand she gripped tightly, seemed less buoyed by the hail of flint, wood, and arrows. Manan gave her a rough tug just before an arrow landed right at their heels. It bounced, tipped, and veered away. We may just make it, she thought, seeing the ice lake's shore just ahead.
@@ -66,7 +68,7 @@ When they stepped out of the woods onto the narrow road, Manan saw the woman's c
 
 ***
 
-The shaggy beast pulling the cart wasn't a horse and couldn't be whipped up to a brisk trot. All that Manan could do was fret in the back hidden under loose planks on the floor. With a heavy cloth thrown over everything, the space was cramped and hot. It didn't help being so close to the girl, either. 
+<a id="update"></a>The shaggy beast pulling the cart wasn't a horse and couldn't be whipped up to a brisk trot. All that Manan could do was fret in the back hidden under loose planks on the floor. With a heavy cloth thrown over everything, the space was cramped and hot. It didn't help being so close to the girl, either. 
 
 The woman had helped Manan wrap the girl back up carefully before easing her into the shallow channel. The woman had shrugged at the cut on the girl's leg. The blood was already drying and crusting in place. "At least she's no bleeder," the woman said. They shoved her him, then Manan wiggled in next to her, hoping that the cart wouldn't go up in flames.
 
