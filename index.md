@@ -135,3 +135,35 @@ With that, Manan was staring up at the woman's face. She had a large red welt on
 Manan usually didn't take commands well, but she listened to the woman's strained order. She jumped out of the wagon and ran to front. Around her, six men lay dead; seven counting the one who had searched the wagon. Good riddance, she thought, though not exactly sure why. Had these been bad men? Perhaps, but they had crossed lines that weren't meant to be crossed. Lines that were recognized and acknowledged and held firmly in place. 
 
 Whether she too had crossed such lines didn't occur to her as she took up the stiff reins. The beast lurched forth now that it senesed a driver in place. Manan didn't know how to drive an animal, but the woman was right. The beast seemed to know where it was going.
+
+***
+
+They veered off the road suddenly. The beast seemed to be following some barely visible path through the woods. Manan couldn't make out the path herself and her hands slacked off on the reins. She had held them tightly, even though she had done nothing useful with them for the last few hours. 
+
+There didn't seem to be tracks for the wagon to follow, which meant that this path was rarely used. This also meant that the track was not well worn. The wagon jostled from side the side, much more roughly than before. The sudden increase of groans from the back meant that the woman could feel it as well.
+
+The beast led them along for at least another hour before it stopped suddenly. The woman called out to her, "Girl, girl, come here." Manan jumped down from the front of the wagon and pulled back the covering. Inside, the woman was pale and breathing rapidly. She held her side, though the red had bled through all of the rags she held there. The woman lifted her head up at the sight of Manan and said, "There is a cave mouth hidden nearby. It's hidden by trees and branches. Clear it and the beast will enter."
+
+To their left rocks jutted out and climbed up from the slope of the mountain side. Manan scanned the area for several minutes before she could make out a spot where a cave opening could be. As she approached the spot, she she began to see how someone had carefully arranged the undergrowth and foilage to hide the cave. Clearing the opening wasn't easy and required a hatchet that she found strapped by the wagon's driver's seat.
+
+When the opening was clear, the beast lurched forward and guided the wagon inside. They travelled down a cooridor before entering in a large chamber. The light was dim here. The woman showed her how to light the wagon's lantern. Soon enough, she had lit up the cave the other lanterns affixed into the cave walls around them.
+
+The chamber walls were rough, but still too even and regular. Someone, long ago had crafted this spot, probably anticipating situations exactly like this one. Perhaps not the exact circumstances, but the Water Women prepared for trouble on the long roads they travelled.
+
+Now that they had light, Manan helped the woman out of the wagon. She laid her down on the smooth cold cave floor. The woman opened her eyes, "Have you ever removed an arrow before?" Manan shook her head. "Do you have a knife?" 
+
+"I do, it's here..." Manan unsheathed the knife at her waist. It was crude and not well made, more than a beggar's shank but not a warrior's blade. 
+
+"Well, it looks sharp enough. You must open the wound and remove the arrow head." Manan went to do just that. The woman grabbed her arm with surprising speed and stregth, "Carefully." 
+
+Manan set to cutting at the spot where the arrow pierced the woman's side. Blood seeped out and ran across the woman's skin. With a little wiggling, Manan pulled the arrow out. "Now, I have herbs in the wagon, and water..." This Manan knew. She crawled up and found the girl sitting up holding her head in her hands.
+
+"Are you okay?" Manan asked.
+
+"I...I don't know...Where are we?"
+
+"In a cave. Let me, let me get something. You stay here. I'll be back." She returned to the woman and cleansed the wound, packed it with herbs, then dressed it as best as she could in the flickering cave light.
+
+"The girl is awake. I should see her."
+
+"Yes," the woman agreed. "I will rest here for now."
