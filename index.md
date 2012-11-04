@@ -68,7 +68,7 @@ When they stepped out of the woods onto the narrow road, Manan saw the woman's c
 
 ***
 
-<a id="update"></a>The shaggy beast pulling the cart wasn't a horse and couldn't be whipped up to a brisk trot. All that Manan could do was fret in the back hidden under loose planks on the floor. With a heavy cloth thrown over everything, the space was cramped and hot. It didn't help being so close to the girl, either. 
+The shaggy beast pulling the cart wasn't a horse and couldn't be whipped up to a brisk trot. All that Manan could do was fret in the back hidden under loose planks on the floor. With a heavy cloth thrown over everything, the space was cramped and hot. It didn't help being so close to the girl, either. 
 
 The woman had helped Manan wrap the girl back up carefully before easing her into the shallow channel. The woman had shrugged at the cut on the girl's leg. The blood was already drying and crusting in place. "At least she's no bleeder," the woman said. They shoved her him, then Manan wiggled in next to her, hoping that the cart wouldn't go up in flames.
 
@@ -138,7 +138,7 @@ Whether she too had crossed such lines didn't occur to her as she took up the st
 
 ***
 
-They veered off the road suddenly. The beast seemed to be following some barely visible path through the woods. Manan couldn't make out the path herself and her hands slacked off on the reins. She had held them tightly, even though she had done nothing useful with them for the last few hours. 
+<a id="update"></a>They veered off the road suddenly. The beast seemed to be following some barely visible path through the woods. Manan couldn't make out the path herself and her hands slacked off on the reins. She had held them tightly, even though she had done nothing useful with them for the last few hours. 
 
 There didn't seem to be tracks for the wagon to follow, which meant that this path was rarely used. This also meant that the track was not well worn. The wagon jostled from side the side, much more roughly than before. The sudden increase of groans from the back meant that the woman could feel it as well.
 
