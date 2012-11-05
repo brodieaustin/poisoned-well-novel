@@ -138,7 +138,7 @@ Whether she too had crossed such lines didn't occur to her as she took up the st
 
 ***
 
-<a id="update"></a>They veered off the road suddenly. The beast seemed to be following some barely visible path through the woods. Manan couldn't make out the path herself and her hands slacked off on the reins. She had held them tightly, even though she had done nothing useful with them for the last few hours. 
+They veered off the road suddenly. The beast seemed to be following some barely visible path through the woods. Manan couldn't make out the path herself and her hands slacked off on the reins. She had held them tightly, even though she had done nothing useful with them for the last few hours. 
 
 There didn't seem to be tracks for the wagon to follow, which meant that this path was rarely used. This also meant that the track was not well worn. The wagon jostled from side the side, much more roughly than before. The sudden increase of groans from the back meant that the woman could feel it as well.
 
@@ -170,7 +170,7 @@ Manan set to cutting at the spot where the arrow pierced the woman's side. Blood
 
 ***
 
-"It's dark in here..." the girl said as Manan approached.
+<a id="update"></a>"It's dark in here..." the girl said as Manan approached.
 
 "Yes, we're in a cave," she explained again. She tried to smooth and round off the anxiousness in her voice. The last few hours had been overwhelming and strange. "And you are okay?"
 
