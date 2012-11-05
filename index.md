@@ -167,3 +167,130 @@ Manan set to cutting at the spot where the arrow pierced the woman's side. Blood
 "The girl is awake. I should see her."
 
 "Yes," the woman agreed. "I will rest here for now."
+
+***
+
+"It's dark in here..." the girl said as Manan approached.
+
+"Yes, we're in a cave," she explained again. She tried to smooth and round off the anxiousness in her voice. The last few hours had been overwhelming and strange. "And you are okay?"
+
+"I don't know. Where are we?" The girl looked around.
+
+"Come with me, let's get out of this wagon." Manan reached out for her and girl flinched away. "It's okay. I won't hurt you."
+
+"But I might hurt you."
+
+"Yes, you might." Manan tried to grab her arm as best she could through the thick wrappings and helped her down into the cave.
+
+They walked around and stood by the beast, who was still harnessed to the wagon. It looked over at Manan and snorted. She didn't know the first thing about tending to animals like these. Would it be hungry? Grow restless in the dark cave? She would have to wait and see.
+
+But the beast's intelligent look did draw her to it. She began running her hands through its thick pelt, along the corded, tight muscles of his neck and haunches. The girl was staring at the woman who had passed out; her head had rolled to the side. "Who's that?" the girl asked. 
+
+"A friend. She helped us escape. That's her beast and her wagon." 
+
+"He's a nice beast," the girl said.
+
+"Yes, he seems very nice."
+
+"Can I touch him?"
+
+"I don't know. You can try..."
+
+But when the girl got close to the beast it flinched and began stepping side to side, too well trained to bolt and clearly struggling through the impulse to do so. The girl pulled away and sat sullenly on the cave floor.
+
+"It's okay. We're strangers. He doesn's know us."
+
+"No, he doesn't. But you don't know me. You don't pull away..."
+
+"No, I don't. But you don't know me either."
+
+"I don't. But you seem...nice." The word seemed hard for her to say. Surely she hadn't said it very often.
+
+"Come on. Let's try to eat something." She only had the dried up berries in her pocket that the woman gave her. She handed a few to the girl who shoved them in her mouth without questioning what they were and might taste like. Manan also chewed the last few berries, hoping that the Water Women had provisioned this cave somehow.
+
+"I'm thirsty," the girl said after they chewed over the berries in silence. "Water?"
+
+The wagon was filled with water; it existed for the sake of water. But taking water from a Water Woman's cart was forbidden and could lead to death. The men on the road had learned that lessen. The Water Women were unbending about this rule. But surely these two girls were an exception. Was there a provision for those taken under a Woman's care and protection?
+
+The girl shifted uneasily and pulled at her throat. She's like a child, Manan thought. A very sad child. Manan had encountered beggar children before who had such an unreal look of sadness about them. She had seen areas ravaged by a battle, by a plague, by follies real and unreal. Often children were left behind to suffer and be sad. Be sad then perish or survive.
+
+Manan knew about survival. Here she was after all. And this girl who she had taken under her protection needed water and would have water as a result. She crawled back into the wagon and found a large cup hanging from a hook. Cup in hand, she knelt down before on the large vessels of water and tapped it, filling the cup to the top. 
+
+The water in that vessel was precious; some claimed it had magical properties. People held it in such esteem that they would fight battles to claim it. The Water Women delivered it everywhere that people demanded it. Manan had only tasted it once or twice and though nothing of it. Now, the water did seem to have magical glow to it in the dim cave light. It seemed to smell of herbs, only Manan, who knew much about herbs and potions, could place the smell or the taste.
+
+She carefully brought the cup back to the girl and held it for her as she drank. The water ran down from the corners of the girl's mouth, turning to steam as soon as it contacted her burning skin. Manan took the cup over to the woman and propper her head up. She let drops of the water trickle into the woman's mouth. 
+
+Then she tasted it herself. The water felt like a light streaming through her body. She felt...cleaner inside somehow. The air around her seemed crisper and fragrant. She wanted to drink more and more or it, but the cup was empty. But she help the cup up again anyway, hoping that some hidden drop would roll from the dented metal into her mouth.
+
+But the cup was dry. She could get more. She hadn't taken that much from the jar. The woman wouldn't miss it, would she. How would she know? Images of the dead men flahsed into her consciousness, as if some part of her was trying to pull back from this greed. But those had been bad men, terrible men who would have done terrible things to them. Manan wasn't a terrible man like that. Only a few more drops might help.
+
+Before she could fill the cup again, though, the woman stirred then sat up. She looked at the cup in Manan's hand then at Manan herself. Manan suddenly felt guiltly and wrong, maybe she was like those bad men after all. She desperately searched the woman's face for some new shape of her mouth, or motion in her eyes, to read what was passing in her mind. Unlocking such thoughts was another skill that she had acquired in her relatively short life.
+
+She couldn't read the woman's thoughts at all, but the tension in the woman's face released and she said, "You were thirsty."
+
+"She was thirsty."
+
+"And you drank too."
+
+"Yes."
+
+"You are under my protection, for now. What is mine is yours. That is our way."
+
+##Chapter 3##
+
+After three days in the cave, the woman was able to stand and move around with help from Manan. She taught Manan how to care for the beast, who they let forage in the woods around the cave and generally fend for itself. "The wild comes back when it needs to," the woman explained. At night the beast came back to the cave, often speckeld white from the snow fall. It shook itself then took station near them and the fire. 
+
+The wagon provided a seemingly endless supply of resources and provision. The woman had stocked it well, as if she had anticipated their adventure. But Manan reminded herself of how far and wide this woman probably trecked before returning to wherever the Water Women went. No one knew for sure where they came from and where they drew their water. Maybe it was one place; maybe it was many places. Manan didn't dare ask, at this point.
+
+They also found more provisions in the cave. Someone had hidden food and medical supplies and a small store of weapons as well. "Take only what we need for now," the woman instructed. What they *needed* obviously included a short sword that the woman brandished and a spear that she handed to Manan. "Good against riders and strong men," she explained.
+
+The woman taught her how to handle the spear, mostly treating it like a quarterstaff, but also how to thrust and jab with it. "Only prick the man when you have to. You might not be able to get your weapon back."
+
+Over the course of those days, Manan learned how to hold the spear and began to embellish her movements. The girl seemed to enjoy her exaggerated, dance-like routines. "You are a good magician and acrobat," the woman said, only half-smiling.
+
+The girl seemed more comfortable with them both now, but would not let them get too near. In the confines of the cave with her burning skin, the girl was smelling badly. Deciding to set a good example, Manan had pulled a large empty tub into the middle of the cave. "Don't use the water. Snow..." the woman said. 
+
+With a bucket, Manan filled the tub with snow. It began to melt on its own, but still clumped and clung to itself. Manan was not one to be filled with shame and stripped down in front of the girl and the woman. She tried to step into the tub, but flinched and cried out at the cold. "I can help," the girl said, stepping over to the tub.
+
+She seemed embarrassed by Manan's nakedness and didn't look at her directly. But she pulled back the coverings around her arms and stuck them deeply into the snow filled tub. The snow began to melt then steam. "There, that will be nice now."
+
+The relaxation that Manan felt in the hot simmering water must have affected the girl too. Huddled in her mass of coverings, she started to hum some broken tunes together and rocked back and forth. She almost seemed happy and unware of her situation. Manan leaned against the edge of the tub, just watching and listening to her. When the girl noticed, she bowed her head and withdrew. "I liked your singing," she said, trying to coax the girl back out, but she said nothing.
+
+***
+
+After two more days in the cave, Manan was growing restless. She wasn't used to staying put for very long. Her feet and wits had taken her far and wide. She wasn't made to curl up in a cave somewhere and just sit. Not like the girl, who must not have taken more than ten steps their entire time together. Manan continually tried to get teh girl to walk with her, to peer out from the cave entrance, to talk to and brush the beast. 
+
+The girl would have none of it. She shook her head, or would pitch back. She acted like a child might, even though she must have been at least as old as Manan. When the girl slept, the woman pulled Manan aside, "You musn't push too hard."
+
+"I just want her to feel better. She seems so...closed off right now."
+
+"Give the child time. She really is nothing more than a child, after all."
+
+They were both watching the girl. Manan decided to venture a question, a bold question that she had avoided asking thus far, "What do you know about her?"
+
+The woman looked down at her and folded her arms across her broad chest, "Very little. One winter she wasn't there. Then one winter she was."
+
+"And no one said anything about her--who she was; where she came from?"
+
+"No, they said nothing. They did not undersatnd the child, that was clear, only understood what she could do. She kept them warm during the long winters. As long as she did that, they cared about little else."
+
+"It's so cruel..." Manan began, but the woman cut her off.
+
+"Perhaps so, but sometimes we don't see how a kindness becomes cruelty or a cruelty can become a kindness."
+
+"I don't understand."
+
+"Only understand that the girl is still alive. She has that, which is more than I could say had she been found in other places in this world."
+
+"She was a slave..."
+
+"In spirit yes, but where were the chains and lash marks? Where were the brandings and burnings and cuts and slices? I do not defend; I do not judge. You must see the whole thing sometimes before you can truly understand who a person is and how to help them."
+
+Later that night Manan thought about what the woman said as she practiced with her spear. Her prideful, fierce nature rebelled at the condenscening words from this woman who had not even volunteered a name so far. But her more cautious side, the side that kept her alive and saw her through many questionable situations, recognized the debt she owed to the woman. Manan also recognized something of the truth in what the woman said. The straight line that she had drawn in her mind between removing the girl from the village and rescuring her from her fate had veered and grown faint. Not altogether hard to see, but just less straight and bold than she had expected.
+
+She intended to help the girl, didn't she? But her notion of held only extended as far as the rescue, the escape, the harrowing flight in the dark and over the ice. The image had lingered in her mind in the days before she decided to act. It still was a potent image. She would relive that scene in her mind for many years to come; she had no doubt of that. 
+
+But where in this world was a safe haven? Manan found it in her craft--her tricks and skills and ability to think quickly. That shifting quickness made her safe. This girl wasn't so fleet and nimble, though. Could they really just dart from place to place? It seemed unlikely now to Manan. So where was some cottage or house sitting on some piece of land somewhere that she could take this girl and keep her safe?
+
+Maybe this Water Woman could help, even though the help she had volunteered up to now was only immediate and focused on the short term. There had been no grand invitations to take up life as a Water Woman and travel with her through the land. Would Manan even want that? Who could say? In the dim dark of that cave, her wants and needs seemed much less clear. So she gripped the spear harder and parried an endless succession of attacks, then spun to counter attack again and again. Sparing with the air, she always found her mark and dispatched her attackers.
+
