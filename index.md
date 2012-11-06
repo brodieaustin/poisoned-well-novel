@@ -170,7 +170,7 @@ Manan set to cutting at the spot where the arrow pierced the woman's side. Blood
 
 ***
 
-<a id="update"></a>"It's dark in here..." the girl said as Manan approached.
+"It's dark in here..." the girl said as Manan approached.
 
 "Yes, we're in a cave," she explained again. She tried to smooth and round off the anxiousness in her voice. The last few hours had been overwhelming and strange. "And you are okay?"
 
@@ -296,7 +296,7 @@ Maybe this Water Woman could help, even though the help she had volunteered up t
 
 ***
 
-Manan's endless sparing had made her tired and she was bored of arranging and rearranding the Water Woman's cart. The beast's pelt was impeccably clean too. Manan had even used one of the woman's tools to file down her long and dirty fingernails. She felt listless and lacking energy and decided to take a nap.
+<a id="update"></a>Manan's endless sparing had made her tired and she was bored of arranging and rearranding the Water Woman's cart. The beast's pelt was impeccably clean too. Manan had even used one of the woman's tools to file down her long and dirty fingernails. She felt listless and lacking energy and decided to take a nap.
 
 An unexpected sound woke her--the sound of laughter. Leaning up from her pallet of blankets, she saw the girl bent over. It seemed that she was in pain, but then the girl reard back, clutching her side and laughing. The woman was telling her a story. She was that Manan was awake. They had a started a small fire which filled the cave with a pleasant crackling sound. "Come over. I'm about to tell another story." Manan slid out of the blankets and sat on the wood stump that served as a seat near the fire. 
 
