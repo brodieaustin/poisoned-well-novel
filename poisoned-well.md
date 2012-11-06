@@ -28,23 +28,23 @@ The pyrotechnics seemed to stanch the flood of arrows too. Without the constant 
 
 Running on ice wasn't easy, but crashing through the dead undergrowth of the forest with a limp loose girl wasn't any better. The girl kept stumbling and falling. When she tried to pick herself up, the branches would singe and the rocks go black. This won't do, Manan though, realizing that they were leaving an obvious trail behind them. 
 
-They had lost the element of surprise entirely, though, so darting off into the night wasn't really much of an option anyway. Manan had underestimated how much sleeping powder it would take to make the large potbellied man who watched over the girl at night stay asleep. The cruel thing wasn't that he awoke, rather that his half-asleep tossings and moanings woke the boy who was his attendant, a word which the villagers used in place of the word "slave."
+They had lost the element of surprise entirely, though, so darting off into the night wasn't really much of an option anyway. Manan had underestimated how much sleeping powder it would take to make the large potbellied man who watched over the girl at night stay asleep. The cruel thing wasn't that he awoke, rather that his half-asleep tossings and moanings woke the boy who was his attendant, a word which the townspeopel used in place of the word "slave."
 
 The boy, who normally had tried to keep as much covering to himself as possible, woke quickly when all of the furs and blankets were yanked from him. He must have been cold blooded like a reptile, Manan though, given how tolerant of the heat he was. As her own face dripped in sweat, the boy took to shivering then shouting when he saw her lifting the girl from her resting place.
 
-Quick as she was with her throwing knives, the only weapon she had learned to use with any confidence, she couldn't plunge one in the boy's stomach fast enough to keep him from waking up he village. She managed to escape with the girl, but only before rousing every hunter in the village armed with a long bow and a bountiful quiver of arrows.
+Quick as she was with her throwing knives, the only weapon she had learned to use with any confidence, she couldn't plunge one in the boy's stomach fast enough to keep him from waking up he town. She managed to escape with the girl, but only before rousing every hunter in the town armed with a long bow and a bountiful quiver of arrows.
 
-Even had she and the girl been able to slip through the forest unheard and unseen, they probably could not evade the villager's will to find them forever. That will exposed to Manan the fundamental flaw in her plan. It was too late now to undecided her course of action. She had chosen to steal away this girl, this girl who burned everything the touched, and kept the village by the icy lake warm during its endless winters.
+Even had she and the girl been able to slip through the forest unheard and unseen, they probably could not evade the townspeople's will to find them forever. That will exposed to Manan the fundamental flaw in her plan. It was too late now to undecided her course of action. She had chosen to steal away this girl, this girl who burned everything the touched, and kept the town by the icy lake warm during its endless winters.
 
-Their crashing and scurrying came to sudden halt at a sword's point. "Did you think you could steal away our precious child?" the man known as Cotton asked her. He was an old man, something like a village elder, but really an outsider employed by the village to protect the girl who became to slump into Manan's arms. "Did you think that I, her protector, would let a little trickster magician like you run out and get away? Foolish child."
+Their crashing and scurrying came to sudden halt at a sword's point. "Did you think you could steal away our precious child?" the man known as Cotton asked her. He was an old man, something like a town elder, but really an outsider employed by the town to protect the girl who became to slump into Manan's arms. "Did you think that I, her protector, would let a little trickster magician like you run out and get away? Foolish child."
 
-During her short time in the village, Manan had not interacted much with the man called Cotton. Had this been the vain village council man, or a silly girl dazzled by her magic show, then a slight of hand or some clever words might have sufficed to lower the blade. But this man before them seemed implacable. 
+During her short time in the town, Manan had not interacted much with the man called Cotton. Had this been the vain town council man, or a silly girl dazzled by her magic show, then a slight of hand or some clever words might have sufficed to lower the blade. But this man before them seemed implacable. 
 
-"By my oath, I should kill you now for violating the sacred rights of ownership that the good people of that village assert over this child."
+"By my oath, I should kill you now for violating the sacred rights of ownership that the good people of that town assert over this child."
 
 "But she isn't even their natural born child, you know that!"
 
-"She became so when the village took her in and cared for her..."
+"She became so when the town took her in and cared for her..."
 
 "And imprisoned her and exploited her..."
 
@@ -68,7 +68,7 @@ Though she was young, she had had a brief career already in the various dark art
 
 Knowing that she couldn't burst forth from her captivity and take the reins, Manan spent her confinement collecting her thoughts. She focused particularly on this women and tried to separate out all of the pieces that might explain why she was helping them. And how had she found them in the woods. Of course, another thing Manan had learned in her brief career was to no prod too far into the circumstances surrounding good fortune. Making luck could be a very dirty business sometimes.
 
-She had seen the woman a few times in the village in the days leading up to this...caper. "The Water Woman," the villagers called her, and probably many more like them. Of course, Manan knew that she was one of just many water women, and a smattering of men too. But this one was unique for her size and strength, no doubt gained by hauling and lugging huge containers of water here and there.
+She had seen the woman a few times in the town in the days leading up to this...caper. "The Water Woman," the townspeople called her, and probably many more like them. Of course, Manan knew that she was one of just many water women, and a smattering of men too. But this one was unique for her size and strength, no doubt gained by hauling and lugging huge containers of water here and there.
 
 Even under the planks and canvas covering, she could here the water sloshing back and forth in their heavy pots. As they traveled on, the water made Manan feel as though they were stow aways on a ship crossing rough seas. At least there in the open water your destination was shore. Here on land, shoved in this woman's wagon, the destination was unknown, Manan's course uncharted.
 
@@ -84,11 +84,11 @@ She jumped down from the wagon and her stiff legs caught her and boyoued her up.
 
 "Dont' wander off," the woman warned her. "And be careful about your tracks." 
 
-The road here, really the ruts that made up the road now, was really just layers and layers of compacted snow. If it hadn't been for the surefooted oxedn and the studded wagon wheels, they would not have made it far at all. Manan's feet even slipped out from under her several times. She caught her balance quicky, As I always do, she though, but the inner bravado was all acting, really. On the compacted road, her route around the wagon would leeave little to no trail, certainly nothing that the village hunters could pick up. They were skilled at tracking antlered beasts, but not tracking men for leagues and leagues.
+The road here, really the ruts that made up the road now, was really just layers and layers of compacted snow. If it hadn't been for the surefooted oxedn and the studded wagon wheels, they would not have made it far at all. Manan's feet even slipped out from under her several times. She caught her balance quicky, As I always do, she though, but the inner bravado was all acting, really. On the compacted road, her route around the wagon would leeave little to no trail, certainly nothing that the town hunters could pick up. They were skilled at tracking antlered beasts, but not tracking men for leagues and leagues.
 
 As she paced, Manan struggled to reorganized the thoughts she had managed to line up and make tidy the night before. With her legs stuff and belly tinged with hunger, it was harder to keep those ordered facts in place. They had a tendency to wander and reshuffle just as she wanted to turn over some bit in her mind.
 
-One particular bit was the woman's name. She though that she had heard someone address the Water Woman in the village, but the name would not surface in her mind. Strangely, given that she was human contraband on this woman's wagon, Manan felt relucatant to ask. Playing the game truly and well meant arming yourself with information before asserting some position. Not know much about this woman made Manan feel weak, and she hated feeling weak.
+One particular bit was the woman's name. She though that she had heard someone address the Water Woman in the town, but the name would not surface in her mind. Strangely, given that she was human contraband on this woman's wagon, Manan felt relucatant to ask. Playing the game truly and well meant arming yourself with information before asserting some position. Not know much about this woman made Manan feel weak, and she hated feeling weak.
 
 Wrapped up as tight in these inner convolutions as she was in her rough spun cloak and coverings, she didn't hear to woman calling her over to sit. When she did hear, she came over to the back of the wagon. The woman sat there with a handful of something. She offered them to Manan and said, "Chew these for your hunger. I don't have much else right now."
 
@@ -104,7 +104,7 @@ She could only just make out what was happening outside, but she heard the woman
 
 "Rights ent meant for smugglers," said a man's voice. If there was only one voice and one man, Manan assumed that the woman would dispatch him as easily as she had Cotton.
 
-But there was another voice, "Words gotten around. The villages have been put on alert...two girls and maybe a Water Woman accomplice. And we look after our own..."
+But there was another voice, "Words gotten around. The towns and villages have been put on alert...two girls and maybe a Water Woman accomplice. And we look after our own..."
 
 By rights they weren't able to search her wagon, Manan knew. The Water Women could not be seized, jailed, or otherwise molested. It had always been that way. But that didn't stop a heavy pair of boots from stomping overhead in the wagon. A man, smelling of smoke and ale, began rifling through the wagon. With the coverings over the floor, Manan couldn't see where he was, but could hear each creak on the floor boards and feel them press closer to her face under the man's weight.
 
@@ -278,7 +278,7 @@ The woman looked down at her and folded her arms across her broad chest, "Very l
 
 "In spirit yes, but where were the chains and lash marks? Where were the brandings and burnings and cuts and slices? I do not defend; I do not judge. You must see the whole thing sometimes before you can truly understand who a person is and how to help them."
 
-Later that night Manan thought about what the woman said as she practiced with her spear. Her prideful, fierce nature rebelled at the condenscening words from this woman who had not even volunteered a name so far. But her more cautious side, the side that kept her alive and saw her through many questionable situations, recognized the debt she owed to the woman. Manan also recognized something of the truth in what the woman said. The straight line that she had drawn in her mind between removing the girl from the village and rescuring her from her fate had veered and grown faint. Not altogether hard to see, but just less straight and bold than she had expected.
+Later that night Manan thought about what the woman said as she practiced with her spear. Her prideful, fierce nature rebelled at the condenscening words from this woman who had not even volunteered a name so far. But her more cautious side, the side that kept her alive and saw her through many questionable situations, recognized the debt she owed to the woman. Manan also recognized something of the truth in what the woman said. The straight line that she had drawn in her mind between removing the girl from the town and rescuring her from her fate had veered and grown faint. Not altogether hard to see, but just less straight and bold than she had expected.
 
 She intended to help the girl, didn't she? But her notion of held only extended as far as the rescue, the escape, the harrowing flight in the dark and over the ice. The image had lingered in her mind in the days before she decided to act. It still was a potent image. She would relive that scene in her mind for many years to come; she had no doubt of that. 
 
@@ -286,3 +286,97 @@ But where in this world was a safe haven? Manan found it in her craft--her trick
 
 Maybe this Water Woman could help, even though the help she had volunteered up to now was only immediate and focused on the short term. There had been no grand invitations to take up life as a Water Woman and travel with her through the land. Would Manan even want that? Who could say? In the dim dark of that cave, her wants and needs seemed much less clear. So she gripped the spear harder and parried an endless succession of attacks, then spun to counter attack again and again. Sparing with the air, she always found her mark and dispatched her attackers.
 
+***
+
+Manan's endless sparing had made her tired and she was bored of arranging and rearranding the Water Woman's cart. The beast's pelt was impeccably clean too. Manan had even used one of the woman's tools to file down her long and dirty fingernails. She felt listless and lacking energy and decided to take a nap.
+
+An unexpected sound woke her--the sound of laughter. Leaning up from her pallet of blankets, she saw the girl bent over. It seemed that she was in pain, but then the girl reard back, clutching her side and laughing. The woman was telling her a story. She was that Manan was awake. They had a started a small fire which filled the cave with a pleasant crackling sound. "Come over. I'm about to tell another story." Manan slid out of the blankets and sat on the wood stump that served as a seat near the fire. 
+
+The girl was hunched up; her arms wrapped tightly around her legs. She rolled back and forth on her bottom. The fire light caught her eyes. She looks happy, thought Manan. Her earlier doubts about her rescue attempt seemed silly now. Of c
+
+
+ about three rabbits who tried to cross an old bridge:
+
+"One day three rabbits were foraging in the woods when they came across an old bridge that spanned a river. The river was far below and seemed like a very swift and strong river. The rabbits could smell a most delicious smell coming form the other side. The sweetest verge grew there."
+
+"And they wanted to eat it!" the girl interjected.
+
+"Yes, they did, but first they had to cross the old bridge. The first rabbit was the bold one. It didn't think much of the other rabbits and their study of the bridge. 'If you want to cross, you just cross' said this one. So it loped out on the bridge. The bridge was very old and shaked from side to side. Soon a gust of wind came by and knocked the rabbit off in the river below. It drifted away in the river feeling very foolish that it was all wet."
+
+"It shouldn't have done that!" the girl said.
+
+"Yes, it was rash, wasn't it?" the woman agreed. She seemed to be looking right at Manan though.
+
+"And the second one? Tell us what the second one did!"
+
+"Well, the second rabbit was more cautious than the first, but thought itself very clever. When it saw a hawk flying overhead, it called to it and asked for help crossing the bridge. The hawk landed on a nearby tree and studied the rabbit. 'Yes, I will help you rabbit.' The hawk made the rabbit nervous at first, but it seemed wise and trustworthy enough. It swooped down, grabbed the rabbit, and flew back to its nest."
+
+"That rabbit never made it to the other side..."
+
+"No, it didn't."
+
+"The third rabbit must have been scarred at that point," girl said. "It should turn back and go home."
+
+"No," the Manan replied. "The grass was too delicious and maybe life was much better across the bridge."
+
+"So, what should it do?"
+
+"Let me continue the story and you'll find out," the woman said. "The third rabbit was just as bold and clever as the other too rabbits, but it also was patient. This rabbit remembered that a farm was nearby. It tracked back to the farm, made itself seen by the farmer, who began to chase the rabbit. The rabbit led the farmer to the bridge, who upon seeing it forgot all about the rabbit. He too became captivated by the sweet smells coming from across the river. The farmer disappeared only to return with his hands and a cart of wood and hammers and nails. The men set to repairing the bridge. The third rabbit waiting and watched. And when the bridge was repaired, it crossed it and filled himself on the sweetest herbs and plants you can imagine."
+
+"But it let the men across too," Manan objected. "What if the farmer decided to continue chasing him? That doesn't seem good."
+
+"It got to the other side," the girl said. "It got the reward. You said that was the most important thing."
+
+Manan was suprised that the girl called her out. The woman seemed amused by the conflict, but didn't interject. "None of the rabbits had a very good plan. I don't think I like this story," she said.
+
+"That may be, but that was what happened, for better or worse, in this story."
+
+##Chapter 4##
+
+"Come foraging with me," the woman said to Manan the next day. Manan had felt sullen since the story, but decided to go with that woman anyway. She couldn't explain why she felt resentful towards the woman, and over a simple story. She felt that there was somethign pointed about the story, but she didn't know what it was. Besides, why was the woman trying to instruct her? What was she trying to do?
+
+Snow fell outside the cave piling up quickly, adding to the piles and piles around them. Manan shivered when they exited the cave and chill took over her. She rubbed at her arms trying to quicken the blood in them.
+
+When they had passed some distance from the save entrance, the woman began shaking snow from the brush, looking for nuts, seeds, or whatever else the animals hadn't grabbed on their own. Manan followed her lead, choosing to ignore the fact that they were leaving obvious signs of their presence.
+
+They worked in silence for some time before the woman finally said, "You didn't like the story I told." 
+
+Manan didn't reply at first. She shifted their foraging basket to be better in between them and tossed a few half husked nuts in with their meager findings. "It was just a story about rabbits. It doesn't matter."
+
+"Maybe not... The girl enjoyed it, though."
+
+"Yes."
+
+"I thought maybe you could tell me your story."
+
+Manan brushed her falling hair back from her face. The vapors from their breath in the cold swirled around their faces. The woman's face was flushed red and bright. "I wouldn't know where to start."
+
+"Start anywhere you would like to."
+
+What would she tell this woman, this large water woman who could protect her or destroy her according to her whims? What had she told the countless people she encountered on the road, in the many towns and villages she had passed through. She had been so many things in the...stories she had told. Princess, peasant, warrior, beggar, slave, thief, attending girl, and many more. 
+
+She was going to begin with one of these stories, one of these lives she had made up. But the scene on the frozen lake flashed in her mind. The feeling of the ice beneath her feet. The sound of the arrows whizzing in the air. So, she began, "I couldn't stand that they were keeping the girl captive. I couldn't imagine what it must be like to be confined in that...chamber they built. I couldn't believe that they had thought to tap in her and make her keep them warm."
+
+"You've said as much before..."
+
+"Yes, and I was performing my shows in the town. I had arrived there a month or so before. I had been in the free cities, where it's warm and money flows freely. I don't know why I ventured into the mountains though. They called to me for some reason. I found a merchant who was travelling there with spices and impressed him with my knowledge of herbs and spices and the like. I sold spices for him in several of the villages around the town before he caught me..."
+
+"Stealing?"
+
+Yes, it was stealing, but she had meant to leave that out of the story. "Stealing... And I escaped before he could bring the village guard to take me away. I found my way to the town and found ways to survive. An innkeeper needed a serving girl to scrub the girls. Well, I have been serving girls who scrub before and did it for a warm place to sleep. My show was popular. I told fortunes too for the wealthy ladies."
+
+"You have many talents," the woman said.
+
+"Mmhmm. Then I learned about the girl and couldn't stop thinking about her and how miserable she must be. And I knew somethign had to be done. Getting her out would be easy. The watchingman's boy was sleepy and the watchignman was so greedy, that he gulped down a confection laced with sleepign powder. I was able to wake the girl, stanch the wounds were the pipes led in her body and get her covered before the boy awoke starting screaming."
+
+The woman knew the rest of the story. There was no reason to go on. But she was sitting back on her knees, waiting expectantly for the rest of the story. the real story of what had happened. "I killed him. I threw my best knife at him. I wished it hadn't been my best knife, but it was. I killed him to escape with the girl."
+
+"He may just be wounded..." the woman tried to say, offering persepctive as seemed to be her wont.
+
+"No, I twisted the knife after he fell. I made...made sure that he was dead. But it didn't stop the watch from being roused and the guards and hunters coming after us. She esacped through the town and the only way out was across the lake. Then you found us and here we are."
+
+"Yes, here we are."
+
+Now that she had told her story, Manan desperately wanted the woman to tell her a story, a story about a young girl who rescued another poor helpless girl from her confinement. A story about a woman so inspired by the girl that we was overhwlemed by the need to help them escape from the evil captors. Manan didn't get to hear that story though. A loud crack sounded in the woods. Birds fled in to the sky. The heard a scurry of creatures rush past them. 
+
+The woman stood up, brushing snow off her shoulders. She seemed even larger than before. "Someone has found us."
