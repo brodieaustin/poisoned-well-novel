@@ -296,7 +296,7 @@ Maybe this Water Woman could help, even though the help she had volunteered up t
 
 ***
 
-<a id="update"></a>Manan's endless sparing had made her tired and she was bored of arranging and rearranding the Water Woman's cart. The beast's pelt was impeccably clean too. Manan had even used one of the woman's tools to file down her long and dirty fingernails. She felt listless and lacking energy and decided to take a nap.
+Manan's endless sparing had made her tired and she was bored of arranging and rearranding the Water Woman's cart. The beast's pelt was impeccably clean too. Manan had even used one of the woman's tools to file down her long and dirty fingernails. She felt listless and lacking energy and decided to take a nap.
 
 An unexpected sound woke her--the sound of laughter. Leaning up from her pallet of blankets, she saw the girl bent over. It seemed that she was in pain, but then the girl reard back, clutching her side and laughing. The woman was telling her a story. She was that Manan was awake. They had a started a small fire which filled the cave with a pleasant crackling sound. "Come over. I'm about to tell another story." Manan slid out of the blankets and sat on the wood stump that served as a seat near the fire. 
 
@@ -391,7 +391,7 @@ The woman stood up, brushing snow off her shoulders. She seemed even larger than
 
 ***
 
-Manan found herself crouched alone in the snow. The woman had tipped over the foraging basket. Their brown shriveled black findings scattered randomly over the now. She wasn't sure whether or not she should run or chase after the woman and join the fray.
+<a id="update"></a>Manan found herself crouched alone in the snow. The woman had tipped over the foraging basket. Their brown shriveled black findings scattered randomly over the now. She wasn't sure whether or not she should run or chase after the woman and join the fray.
 
 But the fray came to her. The woman was backing slowly, parrying the slow swooping strikes from a sword. The girl's protector--the man named Cotton-- weilded the sword. He seemed singularly determined to bring the mountainous woman to her knees. With every strike, every swipe he made, the woman repelled him.
 
