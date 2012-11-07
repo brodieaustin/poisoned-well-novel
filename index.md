@@ -388,3 +388,113 @@ The woman knew the rest of the story. There was no reason to go on. But she was 
 Now that she had told her story, Manan desperately wanted the woman to tell her a story, a story about a young girl who rescued another poor helpless girl from her confinement. A story about a woman so inspired by the girl that we was overhwlemed by the need to help them escape from the evil captors. Manan didn't get to hear that story though. A loud crack sounded in the woods. Birds fled in to the sky. The heard a scurry of creatures rush past them. 
 
 The woman stood up, brushing snow off her shoulders. She seemed even larger than before. "Someone has found us."
+
+***
+
+Manan found herself crouched alone in the snow. The woman had tipped over the foraging basket. Their brown shriveled black findings scattered randomly over the now. She wasn't sure whether or not she should run or chase after the woman and join the fray.
+
+But the fray came to her. The woman was backing slowly, parrying the slow swooping strikes from a sword. The girl's protector--the man named Cotton-- weilded the sword. He seemed singularly determined to bring the mountainous woman to her knees. With every strike, every swipe he made, the woman repelled him.
+
+For a moment, it seemed like the advantage might shift to the woman. She had swatted away a lunging thrust, shifted to the side quickly then thrust with a mishappen branch she had picked up. The man staggered back from the force of the blow and the women stepped into the advantage, trying to bring her weight to bear on him. She easily outweighhed him and crashing down on him with her might would have knocked him off her feet.
+
+Then this man named Cotton saw Manan crouched in the snow and an violent, hard, determined look set on his face. He gained his footing underneath him and brought his sword around in a wide swinging arc. The woman went to block, but the blow cleaved the branch in two. She threw both ends at the man, who swatted them away, and she retreated, grabbing Manan as she went.
+
+They weren't heading back to the cave. She's trying to lead him away from the girl, Manan realized. The man was slow, but they weren't much faster, together at least. Manan's feet kept slipping out from under her. She looked back and saw the man slipping too, but there he was nevertheless.
+
+Suddenly the woman stopped and grabbed a heavy stone, hurling it at the man. Snow scattered widlly in the air. It must have come quickly at him, because he didn't dodge it. The stone struck his leg, leaving him curled over in the pain. This gave them a chance to gain the advantage. "He'll keep coming at us," the woman said, when the finally gained higher ground overlooking the area they had just covered. "He's sworn to. He won't return until he has the girl."
+
+"Or he is dead," Manan added. The woman nodded in agreement.
+
+They watched the man race back and forth beneath them, looking for a strong trail. The snow fell quickly and did an adequate job covering their tracks. Not well enough though. He seemed to light on their general direction and began following the broken trail of footsteps to where they stood.
+
+Their backs pressed to the rock now, the woman whispered, "Do you have your knife?" Manan felt at her side. It wasn't there. She shook her head. The woman seemed disappointed, even dismayed by the fact, which surprised her. 
+
+"We need weapons," Manan said.
+
+"Not necessarily. You draw his attention and lead him to that tree. I'll deal with him from there. But when I do, keep running and get to the girl. This place is no longer safe for us. We must leave."
+
+Manan was reluctant to leave the hard press of the stone, and it felt like leaping into dead space when she finally stood and began scrambling down to intercept the man. He caught sight of her and shouted, "You cannot escape me." Manan began running, only able to trust the woman. She saw the tree and saw the woman hiding behind the tree. To Manan she seemed to stand out and be obvious, but surely this man Cotton was so filled with rage that he didn't see her.
+
+As they passed the tree, the woman sprang out from behind the tree and gripped the man in her powerful arms. She locked his head tight and began to squeeze, lifting the man up from the group. He legs swung widly back and forth and he clawed at the woman's arms. His strength was nothing compared to hers though.
+
+"Run, girl, run!" the woman shouted. But Manan was frozen in place. She couldn't help but watch; she wanted to watch as this man's life slipped from his body and this world.
+
+But something unexpected happened, then man must have had some kind of dagger or razer hidden in the metal sleeves that protected his arms. He stabbed wildly at the woman. She held her grip at first, but then the pain was too much. She dropped the man, reeling back, cut up and drenched in blood. 
+
+The dagger must have been poisoned too. As the man caught his breath, the woman began to foam at the mouth and seize. She fell to the ground with a thud. The man swaggered to her and brought his sword down handily at her neck. 
+
+Manan began hurling snow at the man as he approached her, "Get away! Get away from me!" she shouted. But he kept coming, holding his sword loosely in his hand, this grappling it tight again, only to loosen. The sword bobbed up and down as if brought to life now by the woman's blood. Manan tried to run, but she tripped over feet in retreat.
+
+The man loomed over her only he didn't draw the sword and strike her. He grabbed her roughly and brought her to his feet. With the woman dead now, he seemed more powerful than he had in her presence. But his force and power was quick and jagged, not mountainous and heavy like the woman. He brought her inches from his face. His teeth were strangely white and clean. "Take me to the girl, then I kill you," he said, throwing her back to the ground.
+
+She wanted to cry out that she would never lead him to her, but collected her wits. "I can't. She's dead. She died two days ago. We buried along the road. You were too blind to see it. She even left a marker."
+
+The man stepped to her, but Manan stepped back. "You're lying girl."
+
+"No I'm not. She's dead and she's better off being dead."
+
+"If only it were that simple. Now take me there."
+
+Manan could see the dead thing that had been the woman. She wanted to strike out at this man somehow, but how? She could only think to perpetuate the lie. "I can't she's dead."
+
+"Let's not start all over. I know that she is not dead."
+
+"How can you know that?"
+
+"I know because I am her sworn guardian. I am bound to her. I know because her blood flows in mine." Manan looked shocked. "Yes, I was made to drink her blood and do it reguarly. I have felt the fire that girl possesses inside me."
+
+"Then why don't you go and get her."
+
+"Because the blood has grown thin. The connection is thin. And now you will lead me to her."
+
+Was it really futile to resist this guardian, this avenging spirit? Manan had no weapons. Her potions and tricks were stowed away in her travelling clothes in the cave. She could only throw snow at this man so long before he simply cut her down. Besides, she thought, the man will find the girl eventually. 
+
+Then a small voice in her mind simply said, "Maybe the girl should go back." She wasn't fit for the world, after all. She was merely a child, a child in a young woman's body. She would never have enough sense to live without Manan. And what would their life be like anyway. Running from this gruesome guardian who ingested the girl's blood to protect her. Manan would never have done that. So, maybe she should simply lead him to the cave and all of this confusion would be over.
+
+The revolting voice was halted by terrible screams of pain. Manan looked dumbly at her own body. She expected to see a sword stickign out of her side, or an arm on the ground. But she wasn't wounded, not in the least. It was the man who was screaming. No, shrieking now, crying for mercy, "I'm your protector! How can you do this!"
+
+There was the girl, wrapped around the man, undressed in the snow. Her entire body glowed a hideous translucent red. Manan thought that she could see right through her. The girl pressed herself against the man and he was burning up in his skin as she did.
+
+The girl was trapped when the smoking pile of ruins fell to the ground. The snow smoked and the ground beneath began to singe, but the girl held tight. Manan scrambled to her feet. She tore off her clock. It wouldn't offer much protection from the girl, but enough for now. She heaped now over the dead thing, and pushed it off of the girl.
+
+"It's okay, it's okay. He's gone now." The girl rolled side to side. Manan dropped the cloak over her. The loose fibers of the rough spun thing began to burn too, as they were not protected like the girl's regular coverings. But Manan was able to pick her up, hold her by the shoulders, and lead her back to the cave.
+
+##Chapter 5##
+
+When they returned to the cave, they found the beast rearing and snorting and stamping at the ground. It turned to them and seemed likely to charge. It knows that she's dead, Manan thought. She felt pity for the poor beast, who really seemed to be so much more than a simple beast.
+
+"Wait here," she said to the girl. It was strange to see the girl shivering where she stood, even though the snow melted when it touched her. The cloak wouldn't hold up for much longer, but Manan had to calm the beast down. As she approached it, she tried to keep down the panic. Where would they go? Who could they turn to for protection. Maybe she had been weak to trust and rely on the woman, but the woman had been there. So Manan chose to rely on and trust her. But now the woman was gone, split in two and no longer able to protect these two girls from the world. 
+
+Manan tried to creep towards the beast, but the beast shook its head violently and stamped. But it still didn't charge. Manan pulled back her shoulders and rolled her neck from side to side. She had seen horse wranglers and animal trainers try to settle violent animals before. The wranglers always seemed so calm, so possessed of themselves. She tried to let the stress fall from her body and approach the beast in a peaceful way.
+
+Maybe if she could convince it that everything was okay, then everything woudl be okay. Maybe if the beast accepted this new reality, then Manan could too. She was steps away before the beast finally did lunge at her and knock her off her feet.
+
+Behind her, Manan heard the girl humming the broken pieces of a tune. None of the sounds made any real sense alone, but together they seemed oddly harmonious. Certainly the beast thought so. It began to circle around then stood in place. Manan got up slowly, "Keep singing," she whispered. The girl nodded and closed her eyes to keep carrying the tune.
+
+This time the beast let Manan put a hand on her. She began rubbing the pelt back and forth, up and down its strained neck. She had done this many times over the last few days, but now she was crying and hugging the beast. "I'm sorry. I'm sorry," she kept repeating, though she couldn't have said who she was apologizing to.
+
+The girl was standing near her now. "It will be okay. He's a good beast." She smiled and the beast looked at the girl. "Come on beast, we have to leave now."
+
+The beast turned and entered the cave. The girls followed it. It was time to break up their little domestic scene, however rough it might have been. Manan retrieved the rest of the weapons from the store and flung them in the back of the wagon. Then she gathered up the girl's coverings and carefully wrapped her back up.
+
+"I was trying to take a bath," the girl said, pointing at the wooden tub that was filled with cold water. "But something didn't seem right." And it hadn't been right, Manan thought. None of this was right, but their actions--her actions--had led them here. The beast stood patiently in front of the wagon. It had already accepted this new reality. Could she be as brave as the beast, Manan wondered.
+
+With everything packed, the girls went to hitching the beast up to the wagon. The woman had been able to lift the wagon and harness the beast with ease. These two girls struggled and fought until finally the rig was set up.
+
+There was only one thing to do now. Manan turned to the girl. "I'm sorry, but you'll have to go back in the wagon."
+
+"In the compartment? In the dark?" Manan nodded.
+
+The beast snorted, as if to urge them along. No negotiating, the girl had to go in. "It's too dangerous. We'll draw enough attention as it is. We can't be seen riding together..." But this appeal didn't move the girl who studied the back of the wagon.
+
+"I don't want to go in the dark. I hate the dark" she said.
+
+"I know. I know. I wish we could do it another way. There's no other option..." What could she say, Manan wondered. She couldn't clobber the girl or compel her to go. The beast snorted. Manan tried again. "They will not stop coming for us. We have to go and we have to go now. Maybe things will change when we're far away. I don't know."
+
+The girl suddenly seemed much older than before, looking at Manan she stood up straight. "You're very brave, Manan. You're trying to protect me. I'll get in the wagon."
+
+Together they set aside the covering and the floor boards in the wagon. The girl pressed herself into the small dark space. Manan wondered how they both had travelled in there. But she remembered that the woman had been there to compell them, one way or another. She put everything back into place then jumped up on to the front of the wagon. Much as she had before, she only fingered the reins loosely. The beast spun them around and headed out of the cave and into the increasingly savage cold wind and swirling snow.
+
+
+
+
