@@ -487,6 +487,70 @@ The girl suddenly seemed much older than before, looking at Manan she stood up s
 
 Together they set aside the covering and the floor boards in the wagon. The girl pressed herself into the small dark space. Manan wondered how they both had travelled in there. But she remembered that the woman had been there to compell them, one way or another. She put everything back into place then jumped up on to the front of the wagon. Much as she had before, she only fingered the reins loosely. The beast spun them around and headed out of the cave and into the increasingly savage cold wind and swirling snow.
 
+***
 
+As they travelled, Manan quickly realized that the way would not be easy. The snow accumulated much faster than Manan had expected. The beast began having trouble making its way through the endless waves of snow across the path they followed. But it was heavy, shaggy, and sure footed and continued on with little fussing.
 
+The girl proved to be more of a problem. Not long after they left the cave, Manan heard a thudding sound coming from the back. She ignored it for some time until they girl began to shout, "Manan? Hello!? Manan!" She let the beast continue on while she slipped into the back of the wagon. "Manan? Is that you?"
 
+"I'm here. Try to be more quiet," she said, though not entirely sure why. The snow made everything hushed and muffled. "What's wrong?"
+
+"I can't breathe in here. It's too stuffy and close. I want to get out."
+
+"We can't do that. I'm sorry. You have to stay in here."
+
+The girl started to thrash about, "But I have to get out!" The board bumped and began to give way the more she moved.
+
+Despite knowing that she shouldn't, Manan finally gave in. "Okay, okay. Just try to calm down. I'll get you out." She cleared the way for the girl, who say up and took deep breaths as she did.
+
+"It's terrible in there. Too dark and terrible. The wagon bounces. I bumped my head...more than once."
+
+"You can stay up here for now. I haven't seen anyone one the road in a while. Maybe we'll be safe. But you have to listen and pay attention. If I whislte like this..." Manan pursued her lips and made shrill, thrilling sound like a bird, "You have to get back down there and cover up the best you can."
+
+"I will. I'll pay attention."
+
+Only it was too late, because they both heard a man's voice calling out, saying "Whoa there. Whoa there." Manan moved back to the front of the wagon. A man, a hunter wrapped up in a patchwork of skins and furs, a bow slung across his back, was trying to take hold of the beast's bit and harness.
+
+Manan grabbed the reins and slowed the beast down. "What's the meaning of this?" Manan asked, lowering voice as much as she could. 
+
+The hunter stopped and when he saw her he made an awkward bow, "Pardons, I didn't realize..." His tone shifted though as he stood up and realized that he was addressing a young girl, "...that a Water Woman was passing this way. I thought this beast had wondered off from its master."
+
+"I'm it's master, as much as it can be said to have one," she replied. 
+
+"Yes, that is the way of the Water Women," he replied. They both nodded in agreement.
+
+Manan could not tell if the man believed she was a Water Woman or was too polite to say differently. He is at least willing to humor me, she thought. The man seemed kind enough, coarse and simple probably, too simple to be anything but honorable and honest. At his belt hung several recent kills, including a small rabbit that flopped against a squirrel. Manan thought back to the woman's story about the rabbits, wondering if her path would mirror those of the rabbits. Certianly this one that encoutnered the hunter had met an untimely end.
+
+Maybe she had a hungry look as she examined the man and his kills. He finally said after a gust of wind whipped snow across their faces, "This storm is growing worse. If you come with me now, we can make it back to my cottage. It is nearby." Manan did not respond, weighing her options. The man added, "My family is there. We would be happy to have you as our guest."
+
+In her new role as Water Woman, Manan realized that she had to accept this offer of hospitality. But the girl would be an issue. How to explain the girl? Just lay it bare, she thought. "I accept your offer, but I don't travel alone. By rights, you shouldn't have to take us both in..."
+
+"And the other?"
+
+"My sister," she replied, raising her voice, hoping that the girl would hear her. "She has taken ill and must be confined."
+
+The man's grim look suggested that he was accustomed to illness and maybe even heartbreak. "She won't be alone then. My youngest has taken ill too." It went unspoken between them that he expected Manan to attend to the child with some of the magic waters she carried in her wagon.
+
+***
+
+The hunter continued on foot, leading them off the road and through the woods. When they arrived at the cottage, Manan saw a squat building made of heavy stones crudely held togther with thick mortar that squished out in all directions. Smoke curled up from the chimney. There was a small building nearby--something between a shed and a barn. "The beast can sleep in there. We haven't had livestock in years," the hunter said.
+
+As she led the beast into the barn, Manan controlled her actions carefully. She did not want to shed the illusion of not being a Water Woman. She wasn't sure what a mountain hunter would expect a Water Woman to be like, but Manan felt that she must move gracefully, powerfully, like the woman had. Doing so comforted her and made losing the woman seem less sudden and harsh. 
+
+Mana could almost believe tha the woman was with them, watching her, instructing her how to move with deliberation and purpose. The woman has always seemed careful not to waste her actions. When she sat, she didn't fidget. Her hands always rested on her knees. She hadn't drummed her fingers, and popped her knuckles the way Manan was inclined to do. Maybe if Manan could act out the woman's forceful, yet quiet presence, the hunter and family would believe the was in fact a Water Woman.
+
+She unharnessed it from the wagon and led it into a small stall on the side. The barn truly was small, and the beast seemed absurdly large. But it was dry and the beast seemed happy to chew over the pile of winter wheat that Manan tossed in the feed bin before it.
+
+But dealing with the beast was the easy part. Now she had to navigate to girl and these new people. The hunter would be expecting them inside soon. Manan had already seen one of his children dart out into the cold, only to be chased back inside by one of the older children. They were all aware of these strangers who had arrived in the middle of a snow storm.
+
+When Manan pulled back the opening to the wagon, the girl seemed ready to jump down and rush inside. "Wait, we must talk first. Sit down." The girl said, though she did squirm as she did. "I think that we can trust these people. But we can never be too careful. You must control your...ability. I told him that you are my sister, that you are sick. You must pretend to be sick."
+
+"Oh, so no running and jumping and..."
+
+"No, not yet. You must pretend to be sick. And you can't get well soon. Can you do that?"
+
+"I think so."
+
+"They think that I am like the woman was. A Water Woman, do you know what that is?"
+
+"What the woman was..." the girl replied. Was this an answer? Manan wondered. It would have to suffice.
