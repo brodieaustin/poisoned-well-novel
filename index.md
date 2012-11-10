@@ -391,7 +391,7 @@ The woman stood up, brushing snow off her shoulders. She seemed even larger than
 
 ***
 
-<a id="update"></a>Manan found herself crouched alone in the snow. The woman had tipped over the foraging basket. Their brown shriveled black findings scattered randomly over the now. She wasn't sure whether or not she should run or chase after the woman and join the fray.
+Manan found herself crouched alone in the snow. The woman had tipped over the foraging basket. Their brown shriveled black findings scattered randomly over the now. She wasn't sure whether or not she should run or chase after the woman and join the fray.
 
 But the fray came to her. The woman was backing slowly, parrying the slow swooping strikes from a sword. The girl's protector--the man named Cotton-- wielded the sword. He seemed singularly determined to bring the mountainous woman to her knees. With every strike, every swipe he made, the woman repelled him.
 
@@ -497,7 +497,7 @@ Together they set aside the covering and the floor boards in the wagon. The girl
 
 ***
 
-As they traveled, Manan quickly realized that the way would not be easy. The snow accumulated much faster than Manan had expected. The beast began having trouble making its way through the endless waves of snow across the path they followed. But it was heavy, shaggy, and sure footed and continued on with little fussing.
+<a id="update"></id>As they traveled, Manan quickly realized that the way would not be easy. The snow accumulated much faster than Manan had expected. The beast began having trouble making its way through the endless waves of snow across the path they followed. But it was heavy, shaggy, and sure footed and continued on with little fussing.
 
 The girl proved to be more of a problem. Not long after they left the cave, Manan heard a thudding sound coming from the back. She ignored it for some time until they girl began to shout, "Manan? Hello!? Manan!" She let the beast continue on while she slipped into the back of the wagon. "Manan? Is that you?"
 
