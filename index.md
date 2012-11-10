@@ -8,6 +8,20 @@ title: The Poisoned Well
 
 Go to [the last update](#update).
 
+<!--notes
+water from woman poisoned the girl
+manan leaves that water with hunter
+hunter will come after her eventually
+did water woman know about water? not sure yet
+manan could feel betrayed by water woman
+hunter is part of secret order
+hunter will take manan to see a wise man who lives on a mountain side
+wise man has servent named quill who will try to help girls
+girl will end up under the protection of a lord and not want to leave
+manan has poisoned herself too
+confrontation with water women
+-->
+
 ##Chapter One##
 
 The arrows, hurtled from the dark recesses of the trees, fell around them, skidding stupidly along the ice. Manan, running at full tilt, felt giddy and powerful and terrified all at the same time. The other girl, whose hand she gripped tightly, seemed less buoyed by the hail of flint, wood, and arrows. Manan gave her a rough tug just before an arrow landed right at their heels. It bounced, tipped, and veered away. We may just make it, she thought, seeing the ice lake's shore just ahead.
@@ -214,7 +228,7 @@ The wagon was filled with water; it existed for the sake of water. But taking wa
 
 The girl shifted uneasily and pulled at her throat. She's like a child, Manan thought. A very sad child. Manan had encountered beggar children before who had such an unreal look of sadness about them. She had seen areas ravaged by a battle, by a plague, by follies real and unreal. Often children were left behind to suffer and be sad. Be sad then perish or survive.
 
-Manan knew about survival. Here she was after all. And this girl who she had taken under her protection needed water and would have water as a result. She crawled back into the wagon and found a large cup hanging from a hook. Cup in hand, she knelt down before on the large vessels of water and tapped it, filling the cup to the top. 
+Manan knew about survival. Here she was after all. And this girl who she had taken under her protection needed water and would have water as a result. She crawled back into the wagon and found a large cup hanging from a hook. Cup in hand, she knelt down before on the large ls of water and tapped it filling the cup to the top. 
 
 The water in that vessel was precious; some claimed it had magical properties. People held it in such esteem that they would fight battles to claim it. The Water Women delivered it everywhere that people demanded it. Manan had only tasted it once or twice and though nothing of it. Now, the water did seem to have magical glow to it in the dim cave light. It seemed to smell of herbs, only Manan, who knew much about herbs and potions, could place the smell or the taste.
 
@@ -567,7 +581,7 @@ When Manan pulled back the opening to the wagon, the girl seemed ready to jump d
 
 From the outside, Manan would not have guessed that the squat stone cottage could contain such a riot of noise. Life seemed to pour over her as she led the girl inside. Children sprang from under tables, seemed to drop from the rafters overhead, and swirl around them. They were all curious and clamoring to know more about them.
 
-The hunter's wife, a red face and wiry woman not much taller than Manan, shooed the children away and showed the girl to a rough hewn bed in the corner. They carefully laid her down on the bed. Manan was careful not to let the covering expose her skin. The woman went to unwrap her, but Manan stopped her. "It's better to keep her covered," she said.
+The hunter's wife, a red face and wiry woman not much taller than Manan, shooed the children away and showed the girl to a rough hewn bed in the corner. Nearby was another, smaller bed where the hunter's sick child was sleeping. Manan was careful not to let the covering expose her skin. The woman went to unwrap her, but Manan stopped her. "It's better to keep her covered," she said.
 
 The woman nodded. Much like the hunter, she was either too polite, or too discrete to ask questions. In fact, the hunter's wife dispelled the lingering concern that Manan felt about following the hunter home. How could this determined, frank looking woman harm them?
 
@@ -575,16 +589,58 @@ The girl seemed uncomfortable at first. She tossed in the bed, trying to get com
 
 "Yes," Manan replied, trying to seem serene to keep him from asking more questions. She also looked down at the girl with the most loving and tender look she could muster. "She just isn't well right now."
 
-"She needs peace and rest," his mother asserted, waving the boy away from them. "Come here and help your mother."
+"My little sister is sick too," he replied. "Mother says she might die. What do you think?"
 
-"Yes, ma'am." The boy replied. He had meant well, but had also drawn the other children's attention. The oldest daughter, who probably a few years younger than Manan was the next to approach them. She sat a shallow bowl with water and a few folded rags nearby.
+"I don't know," Manan replied. "I'm not a doctor or surgeon. We'll have to see."
+
+"Both girls needs peace and rest," his mother asserted, waving the boy away from them. "Come here and help your mother."
+
+"Yes, mother." The boy replied. He had meant well, but had also drawn the other children's attention. The oldest daughter, who probably a few years younger than Manan was the next to approach them. She sat a shallow bowl with water and a few folded rags nearby.
 
 "For the fever," she said. Manan could only look appreciative. She wasn't sure if she should try to nurse the girl or not. But to keep up appearances, she swirled one of the rags around in the icy cold water and rung it out. She dabbed the girl's forehead, the water hissing and sizzling as it touched her skin.
 
 Fortunately in the din of the cottage, no one noticed these particulars. The boy, along with his younger sister and brother, were sorting out root vegetables and cleaning them. Another boy, around the age of the oldest daughter was cleaning his father's catches. As their normal domestic routine took hold, the novelty presented by these strangers in their home seemed to diminish. Even the girl seemed comforted as she watched the cooking and cleaning going on around her. She closed her eyes and fell asleep with her arms wrapped tightly around herself.
 
+The older girl returned to tend to her own sister. The girl bounced up from the bed in a coughing fit. She spit up blood. The older sister tenderly wiped it away and rubbed the little girl's back. The young sister had a vacant look in her eyes and didn't even notice Manan. The older sister proppered her up in bed and tried to get the girl to drink and eat broth. 
+
+She glanced at Manan from time to time, studying her closely. Manan became conscious of her rough and wild look. She wore worn out travelling boots and heaps of clothing, tunics and shawls and underclothing all wrapped pell mell around her body. The girl had simple, but tidy clothing on. Her long golden hair had been braided tightly and wound around her head. "Your sister is very pretty," she said after a while.
+
+Manan glanced down a the girl and supposed that she was. She hadn't considered it before, and thought deflated her. Had the girl lived a normal life, she probably would have been courted by young men, married off and lived some charming live. Instead she was bundled up in protective rags and fleeing her life of confinement and servitude. "Yes, she was always the pretty one," Manan replied. 
+
+"Has she been ill for long?"
+
+"No, she only recently fell ill. She were trapped on the road in a snow storm. High up in the mountains. I'm trying to return her home..." Only Manan did not know where or what home might be for the girl. 
+
+The oldest sister nodded, and ran her fingers through her sister's hair. "My name is Felice. What is your name?"
+
+"Manan, and this is..."
+
+"Ethne," the girl opened her eyes and smiled. "My name is Ethne." She rolled on her side and buried her head deep into her hands.
+
+***
+
 The hunter returned from chopping firewood outside. He nodded with approval when he saw the rendered game that his son prepared. He tried to catch his wife's attention, but found she was too absorbed in managing her helpers and preparing food. Manan offered to help build the fire in the broad blackened hearth. He sat the wood down and let her go to work. Slowly she built up the fire as the hunter cleaned and sharpened his knife and a hunting ax. 
 
 Soon enough it was time to eat. The family laid out a modest meal across the long table that cut through the middle of the cottage. To Manan, it seemed like a feast to be eating brown bread and honey, and dried fruits, and the stew the woman had prepared. She woke the girl up and fed her, sitting by her side on the edge of the bed. The proper herself up and willingly accepted the food that Manan offered her.
 
-Between the snow and the early fading light of winter, night came upon them quickly. Soon the children were preparing for bed, swapping their clothes for long night shirts, huddling in another large bed as the fire died down and the cottage became colder.
+Between the snow and the early fading light of winter, night came upon them quickly. Soon the children were preparing for bed, swapping their clothes for long night shirts, huddling in another large bed as the fire died down and the cottage became colder. 
+
+As the family prepared for night night, Manan could feel their expectant looks on her. They were waiting for her to do what Water Women were known to do, to revive the sick and dying from their plights with their magic waters and tonics. Manan knew how powerful such labels were to be people. She had often brandished a small bottle, some innocuous mix of nettles, flowers, and water, and proclaimed it to be a powerful tonic against evil, boils, whatever. Without fail two or three people in the small audience around her would purchase her wares.
+
+Perhaps she would only have to put on a show like that and these worred people could sigh with relief and cling to hope. All the while letting the little girl continue to die no doubt. But these people had taken them in, if only for a few hours now, but they were shielded from the storm outside, off the main road too where people may still be after them. Would they appreciate the finer points of her presence and presentation if she relied on her...repetoire of skills? Manan worried that selling these people on the healing powers of whatever she conjured up out of the wagin might be more difficult than others she had encountered.
+
+Manan realized that when she followed the hunter to his home, she had accepted some part of the responsiblity and the lie that she could help. It had been clear, after all, what bargain the two were making as they faced each other in the snow. So, she stood and announced that she was tend to the beast and return shortly.
+
+In the barn, the beast snorted when it saw her. Manan petted it gently and asked it how she could keep from disappointing these people. But the beast had been so steadfast during her time with it, she figured that it wouldn't understand the finer points of her dilemma. 
+
+In the wagon, Manan folded down one side of wagon, making a temporary table. She examined each of the vessels that held water more carefully than before. Each one was at least as tall as her and as wide as one of her arms. They were uniform though. Manan couldn't detect any markings or distinguish how one was different from the others.
+
+There was one difference, though. All but one of the containers was half empty. The last vessel, closest to the front of the wagon, still contained a significant amount of water. This was the same vessel she drew from when she gave the girl water in the save. Manan could remember the feeling of light coursing through her from before. She also remembered, with no small amount of shame, the greedy feeling she had when she tried it herself. She had wanted to drink more and more of the water, though the woman had stopped her.
+
+Manan drew out water in a large bottle from one of the cabinets opposite the vessels. The Water Woman had kept these stocked with bottles and jars of many shapes and sizes. And colors. Manan found a slender yellow bottle as well. She carefully poured from the larger bottle into this smaller, slender one. As she did, that same aromatic smell filled the wagon from before. It was spicy and floral all at the same time. It smelled like rain and scent of a fresh forest. 
+
+Those smells evoked many memories in Manan, some of happier times, some of worse times. So much of her life had been spent in the open air, in forests like smelled like these smells. She had lived on farms, in towns, crouched in barns and sometimes as rightful guests. The smells and memories and light that would course through her was too much to resist. Manan drew water for herself and drank it greedily.
+
+When she alighted from the wagon, the beast seemed agitated, and moved away from her. She shrugged it off, partly due to the wonderful sensation that the water gave her. She would not have to work so hard after all to sell these people on the medicinal benefits of the Water Woman's, of her, waters.
+
+
