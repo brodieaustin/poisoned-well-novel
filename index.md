@@ -497,7 +497,7 @@ Together they set aside the covering and the floor boards in the wagon. The girl
 
 ***
 
-<a id="update"></id>As they traveled, Manan quickly realized that the way would not be easy. The snow accumulated much faster than Manan had expected. The beast began having trouble making its way through the endless waves of snow across the path they followed. But it was heavy, shaggy, and sure footed and continued on with little fussing.
+<a id="update"></a>As they traveled, Manan quickly realized that the way would not be easy. The snow accumulated much faster than Manan had expected. The beast began having trouble making its way through the endless waves of snow across the path they followed. But it was heavy, shaggy, and sure footed and continued on with little fussing.
 
 The girl proved to be more of a problem. Not long after they left the cave, Manan heard a thudding sound coming from the back. She ignored it for some time until they girl began to shout, "Manan? Hello!? Manan!" She let the beast continue on while she slipped into the back of the wagon. "Manan? Is that you?"
 
