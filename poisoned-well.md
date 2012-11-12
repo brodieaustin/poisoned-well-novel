@@ -629,10 +629,129 @@ In the wagon, Manan folded down one side of wagon, making a temporary table. She
 
 There was one difference, though. All but one of the containers was half empty. The last vessel, closest to the front of the wagon, still contained a significant amount of water. This was the same vessel she drew from when she gave the girl water in the save. Manan could remember the feeling of light coursing through her from before. She also remembered, with no small amount of shame, the greedy feeling she had when she tried it herself. She had wanted to drink more and more of the water, though the woman had stopped her.
 
-Manan drew out water in a large bottle from one of the cabinets opposite the vessels. The Water Woman had kept these stocked with bottles and jars of many shapes and sizes. And colors. Manan found a slender yellow bottle as well. She carefully poured from the larger bottle into this smaller, slender one. As she did, that same aromatic smell filled the wagon from before. It was spicy and floral all at the same time. It smelled like rain and scent of a fresh forest. 
+Manan drew out water in a large bottle from one of the cabinets opposite the vessels. The Water Woman had kept these stocked with bottles and jars of many shapes and sizes. And colors. Manan found a slender yellow vial as well. She carefully poured from the larger bottle into this smaller, slender one. As she did, that same aromatic smell filled the wagon from before. It was spicy and floral all at the same time. It smelled like rain and scent of a fresh forest. 
 
 Those smells evoked many memories in Manan, some of happier times, some of worse times. So much of her life had been spent in the open air, in forests like smelled like these smells. She had lived on farms, in towns, crouched in barns and sometimes as rightful guests. The smells and memories and light that would course through her was too much to resist. Manan drew water for herself and drank it greedily.
 
 When she alighted from the wagon, the beast seemed agitated, and moved away from her. She shrugged it off, partly due to the wonderful sensation that the water gave her. She would not have to work so hard after all to sell these people on the medicinal benefits of the Water Woman's, of her, waters.
+
+***
+
+The hunter's wife had fallen asleep sitting up with one of the children nestled in her lap. The hunter stirred her awake. They shifted over the limp child, who rolled side to side and settled back to sleep. Manan stood behind the hunter, holding the small yellow vial in her hand. When the woman saw it, hope played over her face. She got up quickly and brushed herself off and fidgeted with her hair, as if to make herself presentable before some great lady or god.
+
+Upon seeing the woman's fussing preparations, Manan wanted to cry out, "It's just water!" But she also did not want to disappoint the woman. The three of them moved towards the sick child. "Maybe we should move her, away form the other children," Manan said. Perhaps thinking that something bad could happen. Of course how mere water could have caused something bad, Manan didn't think through.
+
+The hunter cradled the sick girl in his arms. He sat with the girl in his lap at the large table. The girl whimpered and grew fussy, wanting to be put back in bed. "This woman will make you better," her mother explained, kneeling beside the hunter.
+
+Manan stepped forward, uncorked the vial. The aromatics smells began to waft into the room around them. The smells began to overpower the smells of the fire and the cooking pots. Not sure if she could say some kind of incantation or not, Manan chose to be silent. She knelt down before the child, held her chin in her hand and tilted back her head. The water ran quickly form the vial then was gone.
+
+The girl started the cough, and Manan felt panic that something horrible would happen. She stepped back as if ready to flee if necessary. But nothing horrible happened. The girl cleared her cough, sat up straight and alert. She blinked and rubbed her eyes, "Papa? Mama?"
+
+"Yes, darling. We're here," her mother said.
+
+"I feel funny. My tummy feels funny."
+
+"Is it bad, little one?" the hunter asked with a coarse whisper, that was oddly soothing despite its gruffness.
+
+"No, papa, it's good. I feel light. Full of light." The girl wiggled out of the hunter's lap, even though he tried to keep her there. She twirled around a few times then looked at Manan, "Who are you?" she asked, with same kind of innocent directness that her young brother had asked earlier.
+
+"This is our guest," her mother explained. "She helped make you feel better."
+
+"What's is your name?"
+
+"Manan, my name is Manan."
+
+"You're very young."
+
+"Yes. I am young."
+
+Her mother grabbed wildly at the child, hugging her and burying her head in the child's sweaty, dirty hair. The girl, in a fit of strenght, pulled away then started to run aroudn the table, laughing as her father chased after her. The hunter became a monster and growled, trying to capture the young maiden in the woods.
+
+The other children stirred, woken by the noise. The young boy was the first to cry out, "Semele is better! She's better!" He jumped up from bed and joined in the fun. Soon the cabin was full of howls and screams and shrieks. Monsters cried out; children begged for mercy then laughed wildly as the relentless monsters tickled them and devoured their bellies.
+
+Manan sat out of the games they played, relieved that the child seemed well. The oldest daughter sat next to her and took her hand, squeezing it tightly and holding it. "Thank you," she said, and watched the games her siblings played with a removed delight.
+
+The girl, Ethne she was called, even propped herself up and clapped and laugh with each movement of the game. When a monster nabbed a child and devoured it, she would clap and laugh along with the other children. "Run! Run!" she would shout when it was time for the children to flee again.
+
+In the midst of the merriment, the sick girl kept pace with her healthy siblings. Manan hardly noticed the child's eyes moving over to her, searching her hands for a sign of the vial. Then scanning till she found the larger bottle sitting on a shelf. The child returned to play, as if comforted that more or her cure was nearby.
+
+The child kept up until something gave way, and she began to swoon. Her father caught her, saying, "Well, that's enough of our games for now. Even monsters and delicious children need sleep."
+
+Everyone caught their breath. Their flushed faces settled to a normal color. The children returned to bed, trying their best to keep down the giggles and laughs. Soon enough, through the cottage was quiet. Everyone was asleep excpet for Manan. She still sat in a chair by one of the small windows, covered in frost, only offering even smaller windows to the outside.
+
+The fire really was dying now; no light quivered from the gratings. Outside the storm had stopped. With the clouds beginning to part, the moon lit up the forest in an eerie blue glow. Sleepless, Manan quaffed again from a small bottle she had stowed in one of her many secret pockets. The water lit up insides too as the same secrets that seemed to play in the glow outside, played through her too.
+
+##Chapter 7##
+
+Manan and the girl spent several days with the hunter and his family. Over the course of those days, the family administered more water, only a small amount at a time. Day by day, the girl grew stronger, healthy. She slowly was integrated back into the family's normal routine. 
+
+Even though the family's expressions of the gratitude towards Manan lessened in intensity in time, they continue to make her feel as though she had manifested some kind of miracle before them. Though she appreciated the gratitude, Manan also felt puzzled by it. Surely, they had lost children before, Manan thought. She had seen dying children everywhere she had ever traveled. 
+
+
+But for whatever reason, the family seemed to appreciate that this particular child lived now. Certainly she was a nice child. She was full of smiles and funny capers. She seemed to be able to invent silly games for her siblings. The cottage seemed much merrier and happier with the child around. Manan decided to accept the gratitude and these people's new found happiness for what it was and not dwell on it. Though she accepted it, she found herself retreating from the cottage life, spending time with this the beast, or mentally cataloging what was in the cabin. 
+
+After some basic instructions, the oldest daughter also tended to Ethne. Though even Ethne seemed better now that the sick child was healing. She began to follow Manan out to the barn. She liked to talk to the beast, who seemed very attentive to her conversation. Manan never paid close attention to what the girl said, but it pleased her to hear the light chatter.
+
+As the days pressed on and the family's routine life wrapped up Manan and Ethne in its countours, Manan began to wonder what was next for them. Where should they go now? It hardly seemed plausible to stay here. She could tell that they were taxing the family's winter's stores. She had gone out with the hunter to try to make up for their presence, but without much effect. It was time for them to go, but Manan had no idea what her next move should be.
+
+Then one evening as the family tended to dinner, Manan slipped out to the barn under the pretense of looking after the beast. The hunter followed her, startling her when he said to her, "The girl seems better now."
+
+"Your family has done much for us," Manan replied.
+
+"Only she doesn't seem well."
+
+"I don't understand..."
+
+"I am no healer, no doctor or surgeon. But she does not seem improved. She's not stronger. And her coverings..."
+
+"We were told she must wear them..."
+
+"Yes, of course. I don't raise questions, only to wonder if there is more that can be done."
+
+"What do you mean?"
+
+A man stepped out of the shadows, tall, his head shrouded. He didn't raise his head to reveal his face, but said in a clear voice, "It is to say that it is time to consult with a higher power."
+
+"Who is this?" Manan, reached for her knife, but the hunter stepped to her and stayed her hand, roughly, Manan thought. She tried to yank her arm down and twist away from him. The hunter, sening her resistance, let her spin away from his grasp. Manan crouched down, ready to fight.
+
+"He means us no harm."
+
+"But who is he? What is he doing here?"
+
+"This is my brother."
+
+"Your family is near?"
+
+"Not my kin, a sworn brother." The hunter stepped closer to her. He rolled back his sleeve and revealed to her an elaborate marking written on his skin in ink. Manan had seen people who marked their skin this way before, but she had never seen such a mark. It appeared as though the mark was watching her from the three swirling spots that seemed to be eyes.
+
+"This is the mark of my master, who's name I am not allowed to speak. And he serves the same master."
+
+"And it is time that we consult with our master about you."
+
+"You have betrayed us!" Manan still stood in a defnesive posture, ready to strike. But she was confused about who or what to strike.
+
+"Child, he did not betray you. He is sworn to share his secrets with his brother. I live closest to him and was the first to learn of the...miracles that happened here."
+
+"And we are sworn to inform our master too. He must know what happens in his domains and to his charges."
+
+"And who is this master? Is he some powerful lord?" she asked.
+
+"He is only lord over those who have sworn to serve him," the man explained, as if actually offering an explanation.
+
+"He is a seer, a prophet, a wise man who sees and understand much. We are like eyes and ears for him," the hunter added, "And he might be able to help the girl."
+
+"She doesn't need help." The two men looked at each other. Manan understood from the look that perhaps they knew more about the herself and the girl than they led her to beleive. Or perhaps not. Like so much recently, Manan could not fully grasp what she saw around her. She wasn't dealing with the stupid or stupdily wealthy. Comfort made people lazy and easy to read. She was dealing with people hardened to the cold and bitter mountains. When required, they could lock away their true thoughts and feelings.
+
+Certianly this hunter had. Was he really the simple, gentle though coarse hunter and father. Was his tenderness and concern towards his family and children real? Was it any more or less real than her own role as Water Woman, and sister to Ethne? There were too many layers to the game here to unravel the true one from the false one. Manan resigned herself to the fact that she would have to do these men's bidding. She had, after all, accepted the hunter's protection.
+
+The hunter seemed to relax as her tension fled from her body. The other man still stood in place, still concealing his face. "What does all this mean?" she finally asked.
+
+"Tomorrow we will take you to our master. His cell is a few days journey from here, though the snow will slow us down."
+
+"And Ethne."
+
+"She must come too," the other man interjected. "Our master must see her to know her."
+
+After than man slipped back into the shadows and disappeared silently into the night, the hunter left Manan in the barn. She had been wondering over her path and now a path appeared before her. She returned to the cottage to see Ethne, wondering how she would react to their departure.
 
 
