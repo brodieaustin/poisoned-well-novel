@@ -511,7 +511,7 @@ Together they set aside the covering and the floor boards in the wagon. The girl
 
 ***
 
-<a id="update"></a>As they traveled, Manan quickly realized that the way would not be easy. The snow accumulated much faster than Manan had expected. The beast began having trouble making its way through the endless waves of snow across the path they followed. But it was heavy, shaggy, and sure footed and continued on with little fussing.
+As they traveled, Manan quickly realized that the way would not be easy. The snow accumulated much faster than Manan had expected. The beast began having trouble making its way through the endless waves of snow across the path they followed. But it was heavy, shaggy, and sure footed and continued on with little fussing.
 
 The girl proved to be more of a problem. Not long after they left the cave, Manan heard a thudding sound coming from the back. She ignored it for some time until they girl began to shout, "Manan? Hello!? Manan!" She let the beast continue on while she slipped into the back of the wagon. "Manan? Is that you?"
 
@@ -645,7 +645,7 @@ When she alighted from the wagon, the beast seemed agitated, and moved away from
 
 ***
 
-The hunter's wife had fallen asleep sitting up with one of the children nestled in her lap. The hunter stirred her awake. They shifted over the limp child, who rolled side to side and settled back to sleep. Manan stood behind the hunter, holding the small yellow vial in her hand. When the woman saw it, hope played over her face. She got up quickly and brushed herself off and fidgeted with her hair, as if to make herself presentable before some great lady or god.
+<a id="update"></a>The hunter's wife had fallen asleep sitting up with one of the children nestled in her lap. The hunter stirred her awake. They shifted over the limp child, who rolled side to side and settled back to sleep. Manan stood behind the hunter, holding the small yellow vial in her hand. When the woman saw it, hope played over her face. She got up quickly and brushed herself off and fidgeted with her hair, as if to make herself presentable before some great lady or god.
 
 Upon seeing the woman's fussing preparations, Manan wanted to cry out, "It's just water!" But she also did not want to disappoint the woman. The three of them moved towards the sick child. "Maybe we should move her, away form the other children," Manan said. Perhaps thinking that something bad could happen. Of course how mere water could have caused something bad, Manan didn't think through.
 
