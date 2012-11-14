@@ -2,6 +2,7 @@
 layout: page
 title: The Poisoned Well
 ---
+<header>
 #The Poisoned Well#
 
 {{ page.content | number_of_words }} words
@@ -21,7 +22,8 @@ girl will end up under the protection of a lord and not want to leave
 Manan has poisoned herself too
 confrontation with water women
 -->
-
+<header>
+<article>
 ##Chapter One##
 
 The arrows, hurtled from the dark recesses of the trees, fell around them, skidding stupidly along the ice. Manan, running at full tilt, felt giddy and powerful and terrified all at the same time. The other girl, whose hand she gripped tightly, seemed less buoyed by the hail of flint, wood, and arrows. Manan gave her a rough tug just before an arrow landed right at their heels. It bounced, tipped, and veered away. We may just make it, she thought, seeing the ice lake's shore just ahead.
@@ -645,7 +647,7 @@ When she alighted from the wagon, the beast seemed agitated, and moved away from
 
 ***
 
-<a id="update"></a>The hunter's wife had fallen asleep sitting up with one of the children nestled in her lap. The hunter stirred her awake. They shifted over the limp child, who rolled side to side and settled back to sleep. Manan stood behind the hunter, holding the small yellow vial in her hand. When the woman saw it, hope played over her face. She got up quickly and brushed herself off and fidgeted with her hair, as if to make herself presentable before some great lady or god.
+The hunter's wife had fallen asleep sitting up with one of the children nestled in her lap. The hunter stirred her awake. They shifted over the limp child, who rolled side to side and settled back to sleep. Manan stood behind the hunter, holding the small yellow vial in her hand. When the woman saw it, hope played over her face. She got up quickly and brushed herself off and fidgeted with her hair, as if to make herself presentable before some great lady or god.
 
 Upon seeing the woman's fussing preparations, Manan wanted to cry out, "It's just water!" But she also did not want to disappoint the woman. The three of them moved towards the sick child. "Maybe we should move her, away form the other children," Manan said. Perhaps thinking that something bad could happen. Of course how mere water could have caused something bad, Manan didn't think through.
 
@@ -764,7 +766,7 @@ After than man slipped back into the shadows and disappeared silently into the n
 
 ***
 
-Rather than rebelling against their departure, Ethne embraced the chance to leave. "I'm tired of playing sick," she said. "I've been playing dead for days now. I want to run and leap and..."
+<a id="update"></a>Rather than rebelling against their departure, Ethne embraced the chance to leave. "I'm tired of playing sick," she said. "I've been playing dead for days now. I want to run and leap and..."
 
 Manan cut her short, "We can't have that right now. They still believe that you are weak and ill."
 
@@ -953,3 +955,7 @@ The brothers seemed less uncertain and more wary of each in the morning. Manan c
 At the shadowy man's order they broke camp quickly. No one spoke as they readied themselves to leave. Ethne seemed to be in shock. The events that night had unsettlted her more than Manan had expected. Perhaps she had always mistrusted men like Cotton, her titular protector. Maybe she has been hardly aware of people like him. This might have been her first true experince of betrayal. Best she learn this lesson well, Manan thought.
 
 They proceed into the river valley.
+</article>
+<footer>
+Thanks for reading!
+</footer>
