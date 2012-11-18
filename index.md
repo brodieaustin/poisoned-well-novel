@@ -833,7 +833,7 @@ Their mother settled them back down, dispatching them to present presents to the
 
 She showed it to Ethne who smiled and croaked in her sick voice, "It's wonderful. Just like our beast."
 
-Manan helped Ethen outside to the barn. The hunter waited by the open doors. The beast stood at attention, ready to guide the wagon wherever they pointed him. As Manan helped Ethne up on the seat, the hunter asked, "Is this wise?" Manan nodded and he let it go.
+Manan helped Ethne outside to the barn. The hunter waited by the open doors. The beast stood at attention, ready to guide the wagon wherever they pointed him. As Manan helped Ethne up on the seat, the hunter asked, "Is this wise?" Manan nodded and he let it go.
 
 Once again, Manan took up the reins, gave them an obligatory snap. The wagon lurched foward slowly as the beast gained its footing in the snow. It's out of practice, Manan thought. But once they pulled away from the cottage down the small path, the beast picked up momentum, as if remembering that he was a beast meant for travelling, not for settling in a barn.
 
@@ -915,7 +915,7 @@ The lithe man, "Brother, you know that there are strange things in this world."
 
 The other men nodded, though the stocky man seemed strangely discontented with this response, as if he had been put in his place. These men and their whispers unsettled Manan still. Hopefully she could be free of them sooner rather than later.
 
-&&&&
+***
 
 In the middle of the night, Manan opened her eyes. She couldn't say why. She didn't sit up or make any sounds, but kept her eyes open, watching and listening. She had learned that appearing to be asleep when you were not was very useful. She rolled towards the wagon, thinking that she heard a creaking noise.
 
@@ -951,4 +951,204 @@ The brothers seemed less uncertain and more wary of each in the morning. Manan c
 
 At the shadowy man's order they broke camp quickly. No one spoke as they readied themselves to leave. Ethne seemed to be in shock. The events that night had unsettlted her more than Manan had expected. Perhaps she had always mistrusted men like Cotton, her titular protector. Maybe she has been hardly aware of people like him. This might have been her first true experince of betrayal. Best she learn this lesson well, Manan thought.
 
-They proceed into the river valley.
+She had not complained when Manan situated her in the back of the wagon. She expressed no opinion about her comfort or her situation. Certainly, she didn't seem open to discussing what had happened the night before. But it wasn't just that she didn't want to discuss the attempted abduction. Ethne seemed to flee the present scene entirely.  For some reason, her distance and removal frustrated Manan. She wanted to demand that the girl reappear here in the present. 
+
+"Are you alright?" she asked, followed by "Is everything okay?" And then she would repeat these questions until Ethne shaprly repsonded, "I'm fine." She lay down and curled herself up tight, avoiding Manan. She'll have to get used to this, Manan thought. There will be people after her her whole life for one thing or another. 
+
+They followed the river along its meandering course. The fresh snow made everything soft, but also glaring and bright. Snow and ice covered much of the river, but at points where the water sped up, the water had worn away the ice, leaving pock marks all along the surface. The tree coverage began to grow more dense as they reached the bottom of the valley. Manan began to see the wrecks and ruins of old cottages and barns. Off to the left, she was an the ruins of a town wall, guard towers, and bits and pieces of a roof lines. 
+
+They were veering away from the river when Manan became convinced of their destination. Looming over that abadoned town was a large pillar of rock that jutted up from the ground. Sitting atop this pillar was a tower, really a series of buildings and towers that had been mashed together at various points in time. For the last time, the hunter fell back and said, "We've arrived."
+
+They stopped at the pase of the column of stone. A hunched up man with a pained expression apearred from a door cut into the base of the rock. "Quill," the hunter whispered to Manan. The man moved with a limping, loping walk, but moved surprising fast. He kept a cane hooked to this arm, but didn't seem to rely on it. Manan whether the pain's tight, pinched face made her fear him or pity him.
+
+Quill approached the hunter, studing Manan and her wagon as he did. Much the brothers, he did not reveal any thoughts or feelings about what he observed. He almost acted like a window onto a scene. Unlike the other men though, Manan noticed that this man nodded in deference to the hunter and that the hunter did not call him "brother." Nor did the other two men.
+
+"There's hot food inside once you make it up," Quill announced. The thought of a warm meal cheered Manan. The cold dreary landscape seemed to drain more heat away from her than the temperature. Then he looked at her, "You'll be climbing steps, many steps. And what about the other one?"
+
+"The other girl is in the wagon," the shadowy man said. The pain and unease in Quill's face seemed to intenstify when the shadowy man approached him. He even flinched when the man rose his arm. It was a casual, meaningless movement--not even a gesture--but Quill's responce interested Manan greatly. 
+
+"How many stairs?" she asked.
+
+"Enough for you and certainly enough for me." Quill responded. His can slipped into the hand. He used it to navigate over the snow and ice as he circled the cart. "I haven't seen a Water Woman's cart since I was a much younger man."
+
+"How will we get Ethne up?" Manan asked, following the entire length of the rock with her eyes.
+
+"Why, I'll carry her up of course!" Quill responded with a rasping laugh that ended in a cough.
+
+The shadowy man frowned, but the hunter interjected, "Will she let us carry her?"
+
+"I don't know," Manan said. 
+
+Quill suggested that she ask. She was surprised by how forward and open this man, who by all appearances was a servant and not a brother to these men. Certainly they seemed to look down upon him, though that may have had more to do with the crippled body, than to his status. She went to retrieve Ethne, who simply seemed relieved that the journey was over. "There are many stairs to climb. I will have to help you. Is that okay?"
+
+"Yes, it will be fine," she said in a quiet, huffing voice that Manan chose to ignore. 
+
+She helped her down from the wagon. Even as small as they were, the two girls had to duck through the doorway. The stairs--carved from the rock--were worn and smooth and very shallow. The wound steeply up and up. As they went higher and higher, Manan began to feel dizzy. She was warm and sweating being so close to Ethne.
+
+Fortunately, the other men had gone ahead and couldn't hear Mana's muffled swears and curses or feel the feel coming off of Ethne. Quill was behind her though, at some distance, but she was aware of his presence. How could she not be? He whistled a tune, an old ballad about a warrior who gave up fighting to live with a magical woman who then disappeared. He wasn't a particularly good whistler and the tune broke apart, came in and out of her hearing. But the whistle's echo made it seem like the sound came from the rock itself.
+
+The stairway emptied into a small chamber that was set into a wall that surrounded a courtyard at the top of the rock. The wall merged into the tower. "This way," Quill said, leading them across this courtyard and into the tower. Once inside, the brothers dispersed quickly. Quill took Manan and Ethne to a room several floors up. 
+
+"You will stay here until the master is ready to see you," he said. There was a bed and a bench, and little else in the room. Quill started humming another tune and made a fire for the girls. He seemed to find something funny in the proceedings, and made the other men's grim silence seem out of place and strange. This suddent shift in attitude almost made the proceedings of the last few weeks seem absurd, even unreal, as everything that she had done--escaping with the girl, living in a cave, watching people killing each other and being killed--had been her conjuration. "Well, it isn't much, but it isn't the cold either."
+
+***
+
+The two girls sat alone together in the bare room, in silence. It was the first time they had been truly alone together, though Manan had her suspicions that they were being watched or listened to from some crack in the room. After an exhaustive search of the room, she gave up and now had to confront Ethne's aggressive silence. 
+
+"Ethne. Ethne, you must shake yourself out of this. I need you to be...here."
+
+"I'm fine, Manan. I'll be fine. Can't you just leave me alone?"
+
+"Alone? You would be dead if I left you alone!" She regretted saying it at once. She sat down next to Ethne. "I'm sorry. I didn't mean that."
+
+Ethne suddenly didn't seem like a confused little girl, an oversized swaddled baby, which is how Manan often thought of her up until now. "You might be right, but I can still be alone if I want to. You can't pull me into everything you want. I get to choose sometimes too."
+
+Manan wasn't following her logic closely, but the solemn and serious tone communicated something of the pain that the girl must be feeling. Was she strange for not feeling anything about the man being summarily executed by his former brothers? She couldn't back away from the point quite yet, "But he broke his vow and he tried to hurt you. He's not worth mourning over," was her carefully though out reply.
+
+"Maybe not, but you don't get to decide that. Why do you care anyway?"
+
+"Because...Because we have to play a very specific role. We have to control how those men see us and think about us."
+
+"Why does everything have to be a game or a play or a show, Manan? Why can't something just be what it seems to be?"
+
+Manan wasn't sure if she talking about them or the man. "Because people want to hurt us. To hurt you. And we have to be be quicker and smarter than them."
+
+"Maybe you should have left me back in that town. Maybe we would all be better off..." Manan had failed. Ethne sank further into herself, wanting something from her no doubt, but Manan could not deliver it to her.
+
+Reasoning through this despondency would lead her nowhere and she was starting to fidget. She wanted to be doing something, going somehwere. Just sitting in this room, even though it had only been a few hours, was already getting to her. There still was a possibility, after all, that this mysterious master could provide answers and direction, maybe even tell Manan how to cure Ethne. And all that stood between her and these answers was...a locked door.
+
+She tugged at the door a few times. It certainly was locked. "What's wrong?" Ethne asked, finally taking notice of the bursts of bangs Manan produced trying to open the door.
+
+"The door is locked. We're locked inside."
+
+"What does it mean?"
+
+"I don't know. But we aren't supposed to leave."
+
+"Maybe it is for our own good. Maybe there is something or someone terrible lurking in the tower."
+
+Or maybe this was a trap and that men were coming to kill her and take Ethne back. Or maybe they were some kind of sacrifice for this master. Or maybe the servant Quill was up to some game of his own. Manan could only guess.
+
+***
+
+There was nothign to do but wait until someone came for them. The window was too small and the panes of glass to thick to smash through. There was no going through the small flue where the fire burned. As her earlier search demonstrated, there weren't wany secret panels, doors, or passagways into the room. Just as Manan thought that Ethne could burn her way through the door, someone was starting to unlock it then open it.
+
+Manan rushed to compose herself. But as she arranged herself on the rough bench by the fire, Quill, who was shuffling into the room, merely smiled over her, as if seeing through the artifice entirely. "The master is ready for you now," he said, drawing himself up like a herald. Manan stood up. He wants to see her first," he said, pointing at Ethne.
+
+"But she's unwell..."
+
+"I have someone outside to help her." The hunter had entered the room. He had sripped away his travelling apparel, but seemed much thinner and wiry than before, even though they had only been on the road a few days. "Pick her up carefully and be sure not to handle her too roughly." The hunter followed these instructions without even acknowledging Manan. He moved automatically, as if motiviated by some external force or will. Manan felt convinced that some kind of sorcery was at play here. Maybe the master was really was some kind of wizard or conjurer.
+
+But these fears dispelled somewhat when he gently picked Ethne up and reassured her that she would be fine. She did not seemed concerned at all about being taken from Manan, even when they took her form the room and shut the door--locked the door--behind them.
+
+She didn't wait by herself for long. Quill return to open the door. He didn't instruct her to follow him, though. Instead he came in and began poking and prodding the fire. "You drive a Water Woman's cart," he said.
+
+"Yes," was her short reply.
+
+"And yet so young, so very young, to be a Water Woman."
+
+"I was chosen early on." In fact Manan did not exactly how these women who were either merchants, or healers, or warriors, depending upon who you asked, chose their members. She assume that they were somehow selected or chose. It seemed plausible enough.
+
+"And you survived the trials?"
+
+"I did."
+
+"And you said the magic words that bound you to the other women?"
+
+"Yes, of course."
+
+"And if I was to ask you to incant them now?"
+
+Manan answered without thought, "That would break my oath. Servicing your master must make you familiar with that."
+
+The man pushed himself back to standing with his cane. He seemed pleased, even impressed by her. "Yes, of course. But then again, I would never ask you recite the vow, because there isn't any. And there are no secret trials to become a Water Woman, is there?"
+
+Manan sat still, trying not to betray any response. Ride out the accusation, she thought. She had done this before successfully. If you seemed convinved of the lie, so will your accuser, eventually. But this Quill, he was beginning to unsettled her. He seemed to see through her. But what was he? Just some servant of some master, who may or may not actually exist.
+
+"Very good. I'm impressed. Don't worry, I won't tell anyone. Your secret is safe with me. And if you keep up with this level of performance, very few people will find out." Manan didn't even nod in response. "Your friend will be returning soon, I would guess. I do hope that we can help her."
+
+As he left the room, Manan wonder what he meant by his parting words. They seemed just as staged and performed as her stoic acceptance of his accustation that she was no Water Woman. Of course, she wasn't, but the stakes should be clear for her and why she felt it necessary to don this role. But what of this weird man? What role was he playing? And why?
+
+***
+
+"He is very wise, Manan. I mean truly. He...he saw things and knew things," Ethne explained to her. Manan was not accepting her narration of meeting the master. She had very few details to provide about what he looked like, sounded like, what the room looked like, and so on.
+
+"Was he just a little cloud sitting on a pillow?" Manan had finally asked, trying to control the amount of acid in her voice.
+
+"No, Manan. He wasn't a cloud, silly. He was a man. A very old man. But he didn't seem old, do you understand?"
+
+"An old man who doesn't seem old? Well, why not?"
+
+"I mean..." Ethen seemed to be sorting through her limited catalog of experiences to find an example that would explain her point. "There used to be this man, in the town. An elder. The town's council would bring him in on a litter. He drooled and had winkly, soft skin. They would show me to him, let him touch my skin. And this master isn't like that."
+
+"Well, what else? What else stood out about him?" 
+
+Ethne thought for a moment. "Oh, he has a third eye?"
+
+Manan had heard people talk about spell casters and seers and the third eye, but that wasn't a real thing. "Ethne, the third eye is...a way of talking about something by saying something else. It's a saying, an expression."
+
+"You mean it's not real and I don't know what I'm talking about..."
+
+"I'm not saying that. I just, I just don't want you to think that this master is something he's not."
+
+"You just don't want me to trust anyone else, do you? You don't want me to be well and feel better!"
+
+"Better? We don't even know what's wrong with you. How can you be better without knowing that?"
+
+"It doesn't matter anyway."
+
+"And why is that?"
+
+"Because the master is ill."
+
+"How do you know that?"
+
+"He kept some kind of thing by his side that he breathed into from time to time. Like a mask."
+
+This was an important detail that Ethne had left out. If the master truly was dying, then his motivation for seeking them out was much more complicated, or so Manan thought. Now she was even more frustrated that she was not able to see this master face to face and size him up. Maybe his eyes or the way he sat would betray his true intentios to her. If they didn't take her to him soon, she would have to find a way to see him for herself.
+
+For now, it was late and the room had grown dark. Only the dull glow from the fire lit up the room. Between the fire and Ethne, their small room was warm though. Manan felt drowsy in the heat and quickly feel asleep near Ethne, who had curled up on the floor, preferring to draw from of the chill from them to comfort her.
+
+***
+
+A scritching and scratching at the door woke Manan up in the middle of the night. She silently slid out of bed and drew her knife. Creeping to door, she pressed flat against the wall. She had bumped Ethne's leg as she did, and the drowsy girl stirred, but fell back asleep. Finally the lock poped and the door gave way.
+
+Quill loped into the room, looked around, but before he saw her, she slipped out through the door. As she turned to dash away, she threw a metal ball in the opposite direction, towards the stairs. It clacked and clanged as it bounced down the stone stairs. Manan sprinted down the hall as fast as she could before she found a hall that turned into the center of the tower. She didn't look back, but figured that she had at least outrun Quill, even if he wasn't distracted by the metal ball.
+
+She could only assume that the master was up. The design of a tower demanded that. So, when she found a staircase leading up, she took it. This is a steep, winding staircase. Manan slipped and stumbled over the occasional ireggular step, or one that had been finely polished down to trip up an intruder, and she certainly was an intruder now.
+
+When she reached the stop of the stairs, she found herself in a large room, a great hall of sorts. It was very bare, only a large fireplace, a table with a few instruments on it, and an ornate chair. To say the chair was ornate may give the impression that it was rich or oppulent. As Manan drew closer to it, she saw that it was intricately but crudly carved, covered in...eyes. They swirling patterns were eyes of many shapes and sizes, swirling together, fighting for a view of whatever it was they were meant to look out on.
+
+The chair has been painted gold once, and mostly still was, and the eyes were studded in blue stones of many, many shades. This had to be the master's chair. That meant that the master would be nearby. Manan went back to the stairway and didn't hear anyone following her. Hopefully she had caused enough confusion to keep the brothers and Quill off her trail for some time before they caught up with her.
+
+Manan found another staircase that led upwards and here she found the master. Rather she found an old man peering out from the heavy drapes surrounding a bed. "Who goes there?" the old man asked the darkness in the room. His voice was surprisingly feeble, or at least disoriented. She must have caught him deep in sleep. He drew back the curtains, sitting upright. "Ah, so the other one has sought me out."
+
+"I did. I was tired of waiting."
+
+"But your time had not yet come. But it would have soon enough."
+
+"I want answers."
+
+"Perhaps, but do you know the questions?"
+
+Manan step out of the darkness, into the pool of light cast by a bedside candle that the master lit. He was dressed in a simple nightshirt, more luxurious that anything Manan had ever slept in, but certainly not the outfit of a great, powerful, and wealthy lord. His didn't appear to be the life of an ascetic either. Light and shadow played across his face, except for a spot on his forehead. Ethne had been right--the master really did have a third eye, only this eye glistened and gleamed when the light touched it.
+
+"I know what I see in front of me. I'll start there."
+
+"Ah, but do you know? The first thing that I teach my disciples hinges on that. You think you know what you see, but you don't. Sometimes we have to see beyond what we see to truly see. For instance, I see that dagger in your hand, but I also see that your hand is shaking. You're full of conflict, confused about your path."
+
+"Instead of riddles, you could tell me where to go from here."
+
+The master lifted his hands up as if to ward off her insistence on answers. "I'm afraid that it isn't that simple."
+
+"It seemes simple enough to me," Manan said, stepping closer to the master and raising her dagger. She kept it out in front of her, ready to poke him if necessary. She would do it too, but he did not see that.
+
+"Well, pointing that knife at me may seem to make the situation less complicated. But it doesn't. You'll learn that some day. My people certainly do. That is why they rely on me. In any case, let's look at you. Really look at you. What are you? Who are you? Why are you here? Can you even begin to answer these questions?"
+
+"I know that I was brough here by your men. By men whose families don't know they're here. I know that I have a sick...sister to care for..."
+
+"Now stop there," the master said. "Do you think that I don't know that there is something unusual about your...sister, let's call her?"
+
+"She's ill. I don't know why. I'm not a doctor."
+
+The old man seemed very tired. She had woken him up after all.  "I don't need the third sight to know that. But more to the point, do you believe that I have not heard the stories being told of two girls who escaped from a mountain town, across a lake of ice? Of a girl with unusual, and potentially very valuable, abilities?
