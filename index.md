@@ -763,7 +763,7 @@ After than man slipped back into the shadows and disappeared silently into the n
 
 ***
 
-<a id="update"></a>Rather than rebelling against their departure, Ethne embraced the chance to leave. "I'm tired of playing sick," she said. "I've been playing dead for days now. I want to run and leap and..."
+Rather than rebelling against their departure, Ethne embraced the chance to leave. "I'm tired of playing sick," she said. "I've been playing dead for days now. I want to run and leap and..."
 
 Manan cut her short, "We can't have that right now. They still believe that you are weak and ill."
 
@@ -951,7 +951,7 @@ The brothers seemed less uncertain and more wary of each in the morning. Manan c
 
 At the shadowy man's order they broke camp quickly. No one spoke as they readied themselves to leave. Ethne seemed to be in shock. The events that night had unsettlted her more than Manan had expected. Perhaps she had always mistrusted men like Cotton, her titular protector. Maybe she has been hardly aware of people like him. This might have been her first true experince of betrayal. Best she learn this lesson well, Manan thought.
 
-She had not complained when Manan situated her in the back of the wagon. She expressed no opinion about her comfort or her situation. Certainly, she didn't seem open to discussing what had happened the night before. But it wasn't just that she didn't want to discuss the attempted abduction. Ethne seemed to flee the present scene entirely.  For some reason, her distance and removal frustrated Manan. She wanted to demand that the girl reappear here in the present. 
+<a id="update"></a>She had not complained when Manan situated her in the back of the wagon. She expressed no opinion about her comfort or her situation. Certainly, she didn't seem open to discussing what had happened the night before. But it wasn't just that she didn't want to discuss the attempted abduction. Ethne seemed to flee the present scene entirely.  For some reason, her distance and removal frustrated Manan. She wanted to demand that the girl reappear here in the present. 
 
 "Are you alright?" she asked, followed by "Is everything okay?" And then she would repeat these questions until Ethne shaprly repsonded, "I'm fine." She lay down and curled herself up tight, avoiding Manan. She'll have to get used to this, Manan thought. There will be people after her her whole life for one thing or another. 
 
