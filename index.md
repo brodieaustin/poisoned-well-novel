@@ -1153,7 +1153,9 @@ The master lifted his hands up as if to ward off her insistence on answers. "I'm
 
 The old man seemed very tired. She had woken him up after all.  "I don't need the third sight to know that. But more to the point, do you believe that I have not heard the stories being told of two girls who escaped from a mountain town, across a lake of ice? Of a girl with unusual, and potentially very valuable, abilities?"
 
-<a id="update"></a>"I don't know what to believe. But I know that we have been locked up like prisoners since we got here. That you seem to have some interest in my sister. And I worry about that."
+<a id="update"></a>
+
+"I don't know what to believe. But I know that we have been locked up like prisoners since we got here. That you seem to have some interest in my sister. And I worry about that."
 
 "Dispense with calling her your sister and perhaps we can have a proper discussion about this. Ah, there is Quill. Come in, Quill. The girl and I were just having a conversation." As the entered the room, Quill's expression and manner seemed very different. She still limped and seemed to be in pain, but the look of amusement had left his face altogether. He looked at Manan blankly and stood near the door. "Speaking of names," the master continued, "I call him Quill because he has a very fine memory, a remarkable memory, which can be useful to a man like me."
 
