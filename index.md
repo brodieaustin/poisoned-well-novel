@@ -951,7 +951,7 @@ The brothers seemed less uncertain and more wary of each in the morning. Manan c
 
 At the shadowy man's order they broke camp quickly. No one spoke as they readied themselves to leave. Ethne seemed to be in shock. The events that night had unsettled her more than Manan had expected. Perhaps she had always mistrusted men like Cotton, her titular protector. Maybe she has been hardly aware of people like him. This might have been her first true experience of betrayal. Best she learn this lesson well, Manan thought.
 
-<a id="update"></a>She had not complained when Manan situated her in the back of the wagon. She expressed no opinion about her comfort or her situation. Certainly, she didn't seem open to discussing what had happened the night before. But it wasn't just that she didn't want to discuss the attempted abduction. Ethne seemed to flee the present scene entirely.  For some reason, her distance and removal frustrated Manan. She wanted to demand that the girl reappear here in the present. 
+She had not complained when Manan situated her in the back of the wagon. She expressed no opinion about her comfort or her situation. Certainly, she didn't seem open to discussing what had happened the night before. But it wasn't just that she didn't want to discuss the attempted abduction. Ethne seemed to flee the present scene entirely.  For some reason, her distance and removal frustrated Manan. She wanted to demand that the girl reappear here in the present. 
 
 "Are you alright?" she asked, followed by "Is everything okay?" And then she would repeat these questions until Ethne sharply responded, "I'm fine." She lay down and curled herself up tight, avoiding Manan. She'll have to get used to this, Manan thought. There will be people after her her whole life for one thing or another. 
 
@@ -1153,7 +1153,7 @@ The master lifted his hands up as if to ward off her insistence on answers. "I'm
 
 The old man seemed very tired. She had woken him up after all.  "I don't need the third sight to know that. But more to the point, do you believe that I have not heard the stories being told of two girls who escaped from a mountain town, across a lake of ice? Of a girl with unusual, and potentially very valuable, abilities?"
 
-"I don't know what to believe. But I know that we have been locked up like prisoners since we got here. That you seem to have some interest in my sister. And I worry about that."
+<a id="update"></a>"I don't know what to believe. But I know that we have been locked up like prisoners since we got here. That you seem to have some interest in my sister. And I worry about that."
 
 "Dispense with calling her your sister and perhaps we can have a proper discussion about this. Ah, there is Quill. Come in, Quill. The girl and I were just having a conversation." As the entered the room, Quill's expression and manner seemed very different. She still limped and seemed to be in pain, but the look of amusement had left his face altogether. He looked at Manan blankly and stood near the door. "Speaking of names," the master continued, "I call him Quill because he has a very fine memory, a remarkable memory, which can be useful to a man like me."
 
