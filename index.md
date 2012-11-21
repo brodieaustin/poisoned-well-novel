@@ -1151,8 +1151,6 @@ The master lifted his hands up as if to ward off her insistence on answers. "I'm
 
 The old man seemed very tired. She had woken him up after all.  "I don't need the third sight to know that. But more to the point, do you believe that I have not heard the stories being told of two girls who escaped from a mountain town, across a lake of ice? Of a girl with unusual, and potentially very valuable, abilities?"
 
-<a id="update"></a>
-
 "I don't know what to believe. But I know that we have been locked up like prisoners since we got here. That you seem to have some interest in my sister. And I worry about that."
 
 "Dispense with calling her your sister and perhaps we can have a proper discussion about this. Ah, there is Quill. Come in, Quill. The girl and I were just having a conversation." As the entered the room, Quill's expression and manner seemed very different. She still limped and seemed to be in pain, but the look of amusement had left his face altogether. He looked at Manan blankly and stood near the door. "Speaking of names," the master continued, "I call him Quill because he has a very fine memory, a remarkable memory, which can be useful to a man like me."
@@ -1264,6 +1262,8 @@ He was right. She had to control. No stratagem or trick could recover Ethne. So,
 Despite her fear and frustration, Manan smiled when she saw the beast, harnessed to the wagon, waiting for them. He snorted when he was her. She wanted to hug the beast and bury her head in his pelt, as she had done in the cave with the woman and Ethne, but Quill interrupted her reverie, "No time for that, child. We must leave now."
 
 As they pulled away from the tower, a small explosion went off on the opposite side of them. "That will keep them distracted for a while," Quill said. "Get in the wagon, no in the back." Manan had tried to take up her seat in front. "We ride in the back for now." She did as he said, settling herself down on the floor of the wagon. Quill crouched down by her. Another explosion, smaller than the last one, went off near them. The sound and flash startled the beast who started off in whatever direction he was pointing, as fast as the lumbering beast could go, as fast as a terrified and startled animal could flee.
+
+<a id="update"></a>
 
 ##Chapter 10##
 
