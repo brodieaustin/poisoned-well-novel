@@ -6,8 +6,6 @@ Manan leaves that water with hunter
 hunter will come after her eventually
 did water woman know about water? not sure yet
 Manan could feel betrayed by water woman
-hunter is part of secret order
-hunter will take Manan to see a wise man who lives on a mountain side
 wise man has servant named quill who will try to help girls
 girl will end up under the protection of a lord and not want to leave
 Manan has poisoned herself too
@@ -1257,3 +1255,128 @@ He was right. She had to control. No stratagem or trick could recover Ethne. So,
 Despite her fear and frustration, Manan smiled when she saw the beast, harnessed to the wagon, waiting for them. He snorted when he was her. She wanted to hug the beast and bury her head in his pelt, as she had done in the cave with the woman and Ethne, but Quill interrupted her reverie, "No time for that, child. We must leave now."
 
 As they pulled away from the tower, a small explosion went off on the opposite side of them. "That will keep them distracted for a while," Quill said. "Get in the wagon, no in the back." Manan had tried to take up her seat in front. "We ride in the back for now." She did as he said, settling herself down on the floor of the wagon. Quill crouched down by her. Another explosion, smaller than the last one, went off near them. The sound and flash startled the beast who started off in whatever direction he was pointing, as fast as the lumbering beast could go, as fast as a terrified and startled animal could flee.
+
+##Chapter 10##
+
+"No!" she screamed, and jerked upright and awake. Still buried in sleep, she thrashed around, until a few forceful shoves woke her up. She blinked quickly and Quill's face came into focus. He shook her a few more times, "You were dreaming. A bad dream?"
+
+"Yes, no...it was just a dream..."
+
+"Perhaps, but speaking your dreams can help." Manan didn't seem to understand. "Tell your  dream to me, like a story."
+
+"I don't want to. It's just pictures."
+
+"You have travelled this world. Have you ever seen a sign with a bed, or a plank with an arrow painted on it."
+
+"Yes, of course."
+
+"And you see those pictures and what do they tell you."
+
+"That there is a tavern or inn near by, that the path lies ahead."
+
+"Those pictures have meaning, don't they. Why not the ones in your dreams."
+
+"But people see those signs again and again. And they mean the same thing over and over again. These picture in my mind, they just live there. They don't mean anything like those sign."
+
+"Why don't you put them out here and we'll see."
+
+Manan rubbed her eye roughly and sat up. The cart swayed back and forth. They were trapped inside until they were out of danger. There was nothing else to do. What harm could come from it. So, she began to tell Quill her dream.
+
+"I saw a young girl sitting on the bank of a river. She wasn't me, though. She was someone else, but she seemed familiar, like someone I knew. I wasn't there. I could just see her. She was sitting in the grass, fishing, only she wasn't really paying attention to the line. She wasn't trying to catch food, she was just enjoying the sun on her face."
+
+"That river was wide and current was slow. It was too wide to swim across and there wasn't a bridge anywhere near by... I don't know where she came from, I didn't see a house or anything nearby. She was watching the insects buzzing along the river. A turtle crawled into the water. A snake swam by. Coming down the river there was a large raft, piloted by...someone. A woman."
+
+"Did the girl know this woman?" Quill asked.
+
+"I recognized her. She was someone I knew once but she's not around anymore. But the girl waved to her and the woman on the raft waved back. The woman piloted the raft to the shore of the river. 'Are you looking for passage?' she asked the girl, but the girl was too happy sitting alongside the river fishing. The girl shook her head to say no. Maybe she couldn't speak. I don't know."
+
+"The woman pushed off back down the river, but there must have been rocks hiding in the river because she got far away, then the raft starting breaking up. The woman fell into the water. The girl jumped up, but the woman was too far away. She couldn't help. She just had to watch the woman drown. But she wasn't sad. She just...she just went back to fishing as if it had never happened. I was so angry and frustrated by this, but I wasn't there and couldn't do anything help."
+
+"And is that when you woke up?"
+
+"No, there was more." Manan shifted. "I don't know why I'm telling you this. It's just a silly story, no meaning to it. Just pictures that appeared in my mind in no order whatsoever."
+
+"Go on, go on. It is a very interesting story." In their short time together, Quill's mood had changed again. He didn't seem wry and bitter now. And he wasn't being cold and stoic. He seemed calm and soothing. Manan felt she should continue to share her dream with him.
+
+"After the woman, someone else appeared in the dream. A traveller was walking along the river bank and stopped when he saw the girl. A little dog followed him and was yipping and yapping. He was covered in dust and his clothes were full of holes and rips, but the girl didn't notice. He walked with a long nobby walking stick."
+
+"The traveller bowed and smiled and gave the girl a beautiful red flower. It smelled nice. I'm not sure how I know, but I could tell from the look on her face. She was blushing. She seemed to be in love with the traveller. He wanted her to follow him and she didn. She was going to leave the fishing pole, but something was tugging at the line. They realized it too and the traveller drew in the line. It wasn't fish she'd caught though. There was baby hooked to the line."
+
+"She drew it to her arms and it started to cry. She cooed and sang to it. She loved the baby too. It fed from her and fell asleep. The traveller swaddled the baby and tied it to his walking stick. He propped the stick on his shoulder and they left the river."
+
+"Then I'm not sure what happened. They had stopped at a well. The girl was drawing up water and they drank the cool fresh water. The traveller was holding the baby in his arms. But the baby cried and cried in his arms. It's little arms and legs were waving around. The girl reached for the baby, but the traveller pulled the baby away. He didn't want her to have it. He was going to keep it."
+
+"Only he didn't leave with it. He was holding it over the well. The little baby was just dangling there over that well crying. The girl leaped at the traveller. She was crying too. But she was mute and couldn't scream. But dhe tried to scratch his eyes out. The traveller let go of the baby..."
+
+***
+
+By the next day, they left the back of the wagon and rode in front. Manan took the reins, comforted by seeing the beast once again. The snows that covered the mountains became random patches of white as they travelled further and further away from them. Manan began to shed her layers of clothing too, thought the winds that blew from the flatlands were still cold. But she didn't feel the bone shivering cold that had set in during her time in the cell, and that was a relief.
+
+Quill peppered her with questions and had an uncanny ability to pull information from her. She told him about being an orphan who had been taken to a monastic order's home far to the west. She had grown up with a handful of other abdandoned children, made the work to the bone for the order. These particular religious adepts were chemists and apotthecaries. The young Manan frequently found herself caned for stealing herbs and tonics from the order.
+
+A baby faced brother with red cheeks had taken an unnatural ineterest in her when she was older. Again she found herself to be the object of more punishment, as the Father Protector, the head of the order, tried to discipline his disciple's vices out of the young girl. Rather than channel her punishment into the young brother's reformation, she ran away and lived her life on the road ever since.
+
+In those early years, the thought of finding the parents who abandoned her propelled her across many miles, through many towns and villages. But when she took up with the troupe of acrobats and conartists. One of the company, a woman who called herself a sorcesses and magician took the young Manan under her wing. As both mother and mentor, the woman enhanced Manan's knowledge of potions and spells, really just theatrical tricks, but the young girl played the part well.
+
+She already had a penchant for make believe. For so many years with the brothers, it had not been her performing those menial tasks and enduring the harsh discipline metted out by those brothers. No, it had been a warrorior, a clown, a mute, a princess, a fierce wildcat, and so on. Of course, none of the brothers knew that they had living amongst them a powerful diety who could summon rains with muttering nonsense words, but such it had been, and those brothers had died countless deaths by flood, fire, claw, and sword.
+
+The magicain had a husband, her "natural husband," she always called him, but Manan never knew what this meant. The other troupe would smirk when she said this, so Manan added this to her repetoire. When a crowd was gathered around her in some alley way of a town, people pressed close together to see their money disappear before their eyes, the little performer always got a good laught when she called a strapping young man standing next to some randy, toothless lady her "natural husband."
+
+This "natural husband" was a brutal man who faught endlessly with his magiciann "wife." They knocked each other about. Fortunately, the magician knew countless salves to calm fierce swells from fighting. But he was good with blades, particualrly daggers and knives. When the pair wasn't tearing into each other--either fighting or making love--he would teach Manan had to handle baldes. Soon, she added knife throwing to her repetoire, and only nearly killed a young boy once.
+
+But she grew tired of the group she travelled with, and left them in one of the majestic cities that looms in the south. It was there that she learned of a noble woman, bereft after her daughter had disappeared many years before. Manan discovered that the daughter was about her age. When she was mistaken for the daughter in a market, she hatched a plan.
+
+It only took an unscrupulous servant in the noble woman's house to learn all about the daughter's life, or at least enough to ### learn enough deatils to inflect her portrait with realism. She appeared in the houses's kitchens one night, in the midst of a fierce rain storm, claiming that she had been washed ashore in a shipwreck. She didn't know who she was, but the noble lady embraced her in tears.
+
+Her intentions to plunder the household gave way as a newly discovered sentimental side emerged in her personality. She found herself enjoying the time she spent in the noble woman's room, learning to stitch or to read. She found that the lady-like habits became second nature to her. She started to look down upon the servants in the house, thinking herself to be a truly noble little lady.
+
+Playing at being a lady was fine until she struck the same servant who had fed her details about the daughter's life. Within weeks of the affront, the servant hatched a scheme to expose Manan. Things began to disappear from the noble woman's chambers. She accepted this at first. Her servants were always lifting a little piece fo finery from them. She indguled them in a haughty and removed way. After all, she explained to Mananm, the low born could not control their base impulses.
+
+Manan didn't realize that the slighted servant was dropping these stolen items in her room. This alone would not have implicated her. The servant, who had attended her as a lady's maid until their conflict, knew that Manan had a birthmark on her inner thigh. One day, the lady cried out from her chambers. An ancient family heirloom, a brooch of gold and gemstone fashioned in the shape of a winged bird, had disappeared. This theft went too far, and the household staff was made to look high and low for the lost item.
+
+The brooch, of course, was found just outside Manan's room, wrapped carefully in velvet and stowed behind a stone. One of the lady's footmen noticed that the stone was loose, and pulled it aside to discover the lost treasure. Events happened quickly. The staff lined up, confronted by the lady and her head of household, a puffing man who almost held himself to be a lord.
+
+Manan's accomplice squirmed and look guilty as she stood there with the others. "She's the one, of course!" she had thought at the time, little realizing what was about to happen. But the servant was only trying to draw attention to herself. As soon as attention was drawn to her, she broke down, sobbing, falling into another young maid's arms. She told a broken up story about a terrible imposter in their midst who had tricked her into silence, but this was too much, and she never wanted to see her lady hurt like this, and she was innocent and couldn't bear to keep the secret any longer, even if it meant being whipped by the imposter, and said imposter had threatened so many times.
+
+"And who is this imposter?" her ladyship asked. A quivering, shaking hand pointed at Manan. And the servant told about the birthmark on Manan's leg and how her ladyship's daughter hadn't such a mark. "I thought it was an evil looking mark when I seen it, and I was right. I was wrong to lie, your ladyship, terribly wrong, and please forgive me." Or something like that.
+
+The footmen handled Manan roughly, stripped her to her underclothes, and there, of course, was the mark. The mark and the stolen things. The servant had played them all masterfully. Fortunately, at that time, Manan kept a paper packet of powder in her underclothes, a power that when inhaled could make a man double over in a coughing fit. She curled to the ground, now performing her own act of contrition, but really she emptied the packet into her hand, spun around and blew it into the men's faces. 
+
+One by one, they staggered and fell, coughing and wretching. One particualrly sensitive boy vomitted. As she stepped over him, Manan felt some remorse about this. She had liked the boy well enought. But he had seemed particularly eager when tearing her clothes from her with the others. 
+
+From there, Manan travelled with a caravan of merchants, then a slave runner, then travelled by boat to the north. She trekked through the mountains from town to town and came to Ethne's town, only it was just another walled place nestled in a valley, drenched in snow. 
+
+"And then I had the foolish idea that I woudl rescue her. And here I am now. I think I was trying to get on a better path, to right myself somehow. But I'm not anything in this world, and nothings don't get a path, it seems."
+
+"Sometimes somethings don't have a path either," Quill replied. "Your lady in the story, she accepted her fate, didn't she, and was duped into believing a stranger was her daughter. The people of that town, where you rescued Ethne, they accpeted that this little girl would warm them in the cold winter months, never stopping to think what the price of doing so might be. There was no path there, just event and circumstances."
+
+Manan looked Quill, puzzled, "I don't understand you. You served that monster and here you're talking about people doing evil. You did evil itentionally."
+
+Quill's eyes narrowed, regarding her, "Perhaps so, but I am here now. And so are you, thanks to me."
+
+##Chapter 11##
+
+"It seems you are a prophetess too," Quill told her, pointing ahead. They were approaching a river in a distance. Even from afar, it seemed huge. The land was rolling down towards it. "We'll have to cross that river."
+
+"Why?" Manan asked.
+
+"To put it between us and whomever migth be following us. A word of warning, Manan, don't ever let your guard down. Not now. You're little run in with the servant and lady was one thing. But you have crossed many lines that separete the protected from the unprotected. There is a ferry near here. I just don't remember where."
+
+It took another half day before they reached the crossing, only there was no ferryman to be found. The little stub of dock hung over the water stupidly, serving no purpose without a boat. "Maybe he left for the winter?" she asked.
+
+"Perhaps, or he's making his way back. We'll have to wait here and see."
+
+"Why not find another crossing?"
+
+"Because there won't be another one for several more days, and I'm eager to cross here."
+
+"You know this land well."
+
+"Not as well as I once did, but yes, you might say that."
+
+So, they made camp under a stand of trees near the river bank. Manan discovered a shed nearby that must have served as the ferryman's house, though not a very sound one. Manan wandered in circles for some time, starting at the ground, picking up twigs and broken limbs for fire. From a distance, she could see Quill, laying out a bed roll to sleep on. She paused by a tree, almost hiding behind it, watching him.
+
+She could swear that he looked different, but she couldn't tell why. Then she realized what it was. He was walking upright, completely upright. No cane to support him. She couldn't be entirely sure form this distance, but it seemed clear to him. But as soon as the revelation occured to her, he feel back to his stooped walk.
+
+
+Had she really seen him walking upright
