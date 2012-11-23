@@ -1378,5 +1378,102 @@ So, they made camp under a stand of trees near the river bank. Manan discovered 
 
 She could swear that he looked different, but she couldn't tell why. Then she realized what it was. He was walking upright, completely upright. No cane to support him. She couldn't be entirely sure form this distance, but it seemed clear to him. But as soon as the revelation occured to her, he feel back to his stooped walk.
 
+When she returned to their camp, Quill seemed to be so thoroughly...Quill, that Manan didn't believe what she saw, supposed she must have been imagining what she saw. And what difference would it make at this point, anyway. They were in flight from the master and his men, or from the other men that had attacked them. Quill was just as likely to be tracked down by the master's men for breaking some uttered oath, as she was by the people who sought revenge or justice for her theft.
 
-Had she really seen him walking upright
+"We'll continue on in the morning," Quill said. "I trust that the ferryman will return. Until then, I want to sleep on this very hard ground. I suggest you do the same."
+
+So they both slept, though Manan didn't sleep as soundly as he seemed to. She woke up throughout the night, looking out for any approaching danger.
+
+***
+
+Quill's intutition about the ferryman proved to be true. The next morning they woke to a loud voice shouting out, "Hullo! You wanting to cross then?" They gathered their things quickly, broke camp, and rode down the river's edge. The ferryman met them as they approached. He looked them both up and down, spit a wobbling glob of spit on the ground, and made a sucking sound in his nose. "Cold took hold of me a few weeks past. Can't shake the snot from me nose. The boy over there almost shivered to death with a fever, but he got over it."
+
+He looked as if he was trying to peer through the wagon, probably wondering if it contained something to clear his nose. Before Quill could start negotiating terms of their crossing, Manan spoke up, "I have a tonic for that problem. I can mix some for you if you give us passage."
+
+"Fine enough if you're only expecting to get half way across that river." He sucked in again and spit, but more aggressively this time, as if to say that he was feeling just fine, thank you.
+
+"And how far would two bottles get us?" Quill asked.
+
+"To the other side, but I know traveller's minds. It's never just back and forth, is it. It's that and then some. 'Well why not take me to the portage' they say. Or, 'But Castle Wray isn't much further.' You know how it is."
+
+"Yes, we do. And how to get us within two days of Corton."
+
+"Lord Corby's place?"
+
+"That's the one."
+
+"Well," another spit, "more than a few bottles of this girl's water."
+
+"Three bottles. I only use the rarest of herbs. And this brew has a special mineral from the Low Lakes. It soothes and bring balance back to the body's fluids by being a drying agent."
+
+"A rare mineral, eh? Well, I'm just a common man. I havne't much time for special and rare. Home remedies work just fine. There's a witch woman just nearby who can make a fine drying potion."
+
+"The tonics, and three coins," said Quill.
+
+The offer seemed about to sway the ferryman, but he added, "It's a fine cart, and a finer beast. I don't see many beasts like that around here. And what wonderous things you must have in the wagon. My boy will have to lash it down tightly to make sure that its valuable and rare contents don't spill over."
+
+The implication was clear to Manan, and she spoke up, "Two more coins and we never passed this way."
+
+"You're a clever girl, it's a shame I won't recall your face from my own mother's. Now how about those tonics, my head hurts fiercly."
+
+"I'll prepare them while we're on the river."
+
+"At least let me see the coin then."
+
+"Agreed," said Quill. He produced a handful of coins and handed them to the ferryman. "Now may we get going?"
+
+"After you, master," the ferryman said with an exagerated flourish of his hands.
+
+They loaded the wagon onto the ferry. The boy, who seemed reluctant to look Manan in the eyes, strapped it down with heavy rope. The beast performed well. He obviously was used to travelling this way. As they cast off from the stubby dock, Manan went inside the wagon and began to prepare the tonics for the ferryman.
+
+In the cabinets of herbs and minerals and other distillations, Manan's fingers quickly picked from the stock. She stuffed three bottles with the materials she selected, then filled thebottles with water from the remaining vessel, taking a few sips herself. If only Ethne had been there, she could have warmed the mixture to a proper temperature to release the characteristics of the materials.
+
+But Ethne was not there. She was not stuffed underfoot into the smuggler's compartment. She was not on the raft, letting the sun warm her face. She wasn't even whining about this or resisting that. Manan began to cry, but scoleded herself for being so stupid. She hardly knew Ethne. Now their ways had parted, just as she had parted ways with countless others in her life. Such was the nature of life. So many people wandering through this world. What was the chance that any two of them could stick together for a meaningful amoutn of time?
+
+When she reappeared, Quill and the ferryman were talking. "Has anyone told you that you're the image of Lord Corby. You might as well be him in disguise."
+
+"Sorry to disappoint friend. But I'm not. I'm just a humble traveler with my daughter."
+
+"Eh, yes, you're daughter. Well she doesn't look much like you."
+
+"Well, her mother was a town's lady."
+
+The ferryman touched his nose and gave Quill a wink. "Of course, my good man. Speak no more. I'm sure I have a few of those out there in the world myself. Ah, and here's the young lady herself with my medicine."
+
+"Yes, but it is not fully prepeared." The ferryman frowned. "I don't have anything to heat it with. It needs to be heated over a flame and cooled before you consume it. But no more than three drops on the middle of your tounge."
+
+"Ah, that's a good girl. I want this mess cleared from my head."
+
+***
+
+They travelled for several hours down the river. It was a wide river, sprawling and slow. The ferryman didn't seem to exert himself working the craft, though Manan supposed the getting back upstream required more work. After the cold rough riding they had done in the mountains, Manan enjoyed this lazy, effortless way of travelling. 
+
+Trees began to dot the landscape, then surround the river. Deep in their recesses, Manan could hear birds crying out and animals prowling, but there was little to see in the dense tangle and undergrowth. It did occur to her that they could be attached easily from the woods. They were very exposed on the raft. There wasn't even a cabin to hide in if they were shot with arrows.
+
+But they weren't attacked. Soon enough bridges began to appear that spanned the river. They passed fisherman hauling in nets thrown out in the water. The river must have touched a road for some time because they saw farmers with handcarts and oxens. A few messengers galloped by. A troop of soliders marched over a bridge.
+
+All of these people, coming and going, were part of the ebb and flow of life in this area. The ebb and flow meant that the town and castle were nearby. But it also suggested to Manan that stability, normality, might just be lurking nearby. The idea of being away from towers inhabitated by madmen, of being chased in the woods by avenging guardians, was appealing to her. If she only knew why Quill had settled on this place, instead of some other far flung place, she could rest easier.
+
+For his part, Quill seemed more on edge rather than less, almost in direct proprostion to her increased sense of comfort and relieve. Manan could tell that he struggled to keep his head up and looking about naturally. When a rider trotted by, he would dart casual glances, sometimes turning his whole body in a meandering, seemingly pointless circle. But it was clear that he was keeping track of everyone they passed.
+
+When they reached the ferry's end, the ferryman and his boy got to work landing the craft, unsecuring the wagon, and preparing for the next passenger. True to his word, as soon as they rolled off the ferry and began to roll the wagon up the river bank, the ferryman turned to his work and ignored their presence completley. He might as well ahve not had any passengers from the lack of interest that he displayed.
+
+"We can only hope that his memory is as bad as he said."
+
+"Look at him," was Manan's reponse. "He doesn't even look like he knows we exist now."
+
+"Yes, for now. But when a man's life hangs in the balance, it is amazing what he can suddenly remember."
+
+"Do you think that it would come to that?"
+
+"Hard to say. It all depends on how deeply you've woudned the powerful people who took charge of Ethne."
+
+"Why would they care? They can burn coal dust in their grates, for all I care."
+
+"You are forgetting the importance of image."
+
+"What does that mean?"
+
+"It means that the need to keep up appearances will compell people to do things they wouldn't normally, not even if the actual thing is of little importance."
+
+
