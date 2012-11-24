@@ -1263,8 +1263,6 @@ Despite her fear and frustration, Manan smiled when she saw the beast, harnessed
 
 As they pulled away from the tower, a small explosion went off on the opposite side of them. "That will keep them distracted for a while," Quill said. "Get in the wagon, no in the back." Manan had tried to take up her seat in front. "We ride in the back for now." She did as he said, settling herself down on the floor of the wagon. Quill crouched down by her. Another explosion, smaller than the last one, went off near them. The sound and flash startled the beast who started off in whatever direction he was pointing, as fast as the lumbering beast could go, as fast as a terrified and startled animal could flee.
 
-<a id="update"></a>
-
 ##Chapter 10##
 
 "No!" she screamed, and jerked upright and awake. Still buried in sleep, she thrashed around, until a few forceful shoves woke her up. She blinked quickly and Quill's face came into focus. He shook her a few more times, "You were dreaming. A bad dream?"
@@ -1386,6 +1384,8 @@ It took another half day before they reached the crossing, only there was no fer
 So, they made camp under a stand of trees near the river bank. Manan discovered a shed nearby that must have served as the ferryman's house, though not a very sound one. Manan wandered in circles for some time, starting at the ground, picking up twigs and broken limbs for fire. From a distance, she could see Quill, laying out a bed roll to sleep on. She paused by a tree, almost hiding behind it, watching him.
 
 She could swear that he looked different, but she couldn't tell why. Then she realized what it was. He was walking upright, completely upright. No cane to support him. She couldn't be entirely sure form this distance, but it seemed clear to him. But as soon as the revelation occured to her, he feel back to his stooped walk.
+
+<a id="update"></a>
 
 When she returned to their camp, Quill seemed to be so thoroughly...Quill, that Manan didn't believe what she saw, supposed she must have been imagining what she saw. And what difference would it make at this point, anyway. They were in flight from the master and his men, or from the other men that had attacked them. Quill was just as likely to be tracked down by the master's men for breaking some uttered oath, as she was by the people who sought revenge or justice for her theft.
 
