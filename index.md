@@ -1387,5 +1387,308 @@ So, they made camp under a stand of trees near the river bank. Manan discovered 
 
 She could swear that he looked different, but she couldn't tell why. Then she realized what it was. He was walking upright, completely upright. No cane to support him. She couldn't be entirely sure form this distance, but it seemed clear to him. But as soon as the revelation occured to her, he feel back to his stooped walk.
 
+When she returned to their camp, Quill seemed to be so thoroughly...Quill, that Manan didn't believe what she saw, supposed she must have been imagining what she saw. And what difference would it make at this point, anyway. They were in flight from the master and his men, or from the other men that had attacked them. Quill was just as likely to be tracked down by the master's men for breaking some uttered oath, as she was by the people who sought revenge or justice for her theft.
 
-Had she really seen him walking upright
+"We'll continue on in the morning," Quill said. "I trust that the ferryman will return. Until then, I want to sleep on this very hard ground. I suggest you do the same."
+
+So they both slept, though Manan didn't sleep as soundly as he seemed to. She woke up throughout the night, looking out for any approaching danger.
+
+***
+
+Quill's intutition about the ferryman proved to be true. The next morning they woke to a loud voice shouting out, "Hullo! You wanting to cross then?" They gathered their things quickly, broke camp, and rode down the river's edge. The ferryman met them as they approached. He looked them both up and down, spit a wobbling glob of spit on the ground, and made a sucking sound in his nose. "Cold took hold of me a few weeks past. Can't shake the snot from me nose. The boy over there almost shivered to death with a fever, but he got over it."
+
+He looked as if he was trying to peer through the wagon, probably wondering if it contained something to clear his nose. Before Quill could start negotiating terms of their crossing, Manan spoke up, "I have a tonic for that problem. I can mix some for you if you give us passage."
+
+"Fine enough if you're only expecting to get half way across that river." He sucked in again and spit, but more aggressively this time, as if to say that he was feeling just fine, thank you.
+
+"And how far would two bottles get us?" Quill asked.
+
+"To the other side, but I know traveller's minds. It's never just back and forth, is it. It's that and then some. 'Well why not take me to the portage' they say. Or, 'But Castle Wray isn't much further.' You know how it is."
+
+"Yes, we do. And how to get us within two days of Corton."
+
+"Lord Corby's domain?"
+
+"That's the place."
+
+"Well," another spit, "more than a few bottles of this girl's water."
+
+"Three bottles. I only use the rarest of herbs. And this brew has a special mineral from the Low Lakes. It soothes and bring balance back to the body's fluids by being a drying agent."
+
+"A rare mineral, eh? Well, I'm just a common man. I havne't much time for special and rare. Home remedies work just fine. There's a witch woman just nearby who can make a fine drying potion."
+
+"The tonics, and three coins," said Quill.
+
+The offer seemed about to sway the ferryman, but he added, "It's a fine cart, and a finer beast. I don't see many beasts like that around here. And what wonderous things you must have in the wagon. My boy will have to lash it down tightly to make sure that its valuable and rare contents don't spill over."
+
+The implication was clear to Manan, and she spoke up, "Two more coins and we never passed this way."
+
+"You're a clever girl, it's a shame I won't recall your face from my own mother's. Now how about those tonics, my head hurts fiercly."
+
+"I'll prepare them while we're on the river."
+
+"At least let me see the coin then."
+
+"Agreed," said Quill. He produced a handful of coins and handed them to the ferryman. "Now may we get going?"
+
+"After you, master," the ferryman said with an exagerated flourish of his hands.
+
+They loaded the wagon onto the ferry. The boy, who seemed reluctant to look Manan in the eyes, strapped it down with heavy rope. The beast performed well. He obviously was used to travelling this way. As they cast off from the stubby dock, Manan went inside the wagon and began to prepare the tonics for the ferryman.
+
+In the cabinets of herbs and minerals and other distillations, Manan's fingers quickly picked from the stock. She stuffed three bottles with the materials she selected, then filled thebottles with water from the remaining vessel, taking a few sips herself. If only Ethne had been there, she could have warmed the mixture to a proper temperature to release the characteristics of the materials.
+
+But Ethne was not there. She was not stuffed underfoot into the smuggler's compartment. She was not on the raft, letting the sun warm her face. She wasn't even whining about this or resisting that. Manan began to cry, but scoleded herself for being so stupid. She hardly knew Ethne. Now their ways had parted, just as she had parted ways with countless others in her life. Such was the nature of life. So many people wandering through this world. What was the chance that any two of them could stick together for a meaningful amoutn of time?
+
+When she reappeared, Quill and the ferryman were talking. "Has anyone told you that you're the image of Lord Corby. You might as well be him in disguise."
+
+"Sorry to disappoint friend. But I'm not. I'm just a humble traveler with my daughter."
+
+"Eh, yes, you're daughter. Well she doesn't look much like you."
+
+"Well, her mother was a town's lady."
+
+The ferryman touched his nose and gave Quill a wink. "Of course, my good man. Speak no more. I'm sure I have a few of those out there in the world myself. Ah, and here's the young lady herself with my medicine."
+
+"Yes, but it is not fully prepeared." The ferryman frowned. "I don't have anything to heat it with. It needs to be heated over a flame and cooled before you consume it. But no more than three drops on the middle of your tounge."
+
+"Ah, that's a good girl. I want this mess cleared from my head."
+
+***
+
+They travelled for several hours down the river. It was a wide river, sprawling and slow. The ferryman didn't seem to exert himself working the craft, though Manan supposed the getting back upstream required more work. After the cold rough riding they had done in the mountains, Manan enjoyed this lazy, effortless way of travelling. 
+
+Trees began to dot the landscape, then surround the river. Deep in their recesses, Manan could hear birds crying out and animals prowling, but there was little to see in the dense tangle and undergrowth. It did occur to her that they could be attached easily from the woods. They were very exposed on the raft. There wasn't even a cabin to hide in if they were shot with arrows.
+
+But they weren't attacked. Soon enough bridges began to appear that spanned the river. They passed fisherman hauling in nets thrown out in the water. The river must have touched a road for some time because they saw farmers with handcarts and oxens. A few messengers galloped by. A troop of soliders marched over a bridge.
+
+All of these people, coming and going, were part of the ebb and flow of life in this area. The ebb and flow meant that the town and castle were nearby. But it also suggested to Manan that stability, normality, might just be lurking nearby. The idea of being away from towers inhabitated by madmen, of being chased in the woods by avenging guardians, was appealing to her. If she only knew why Quill had settled on this place, instead of some other far flung place, she could rest easier.
+
+For his part, Quill seemed more on edge rather than less, almost in direct proprostion to her increased sense of comfort and relieve. Manan could tell that he struggled to keep his head up and looking about naturally. When a rider trotted by, he would dart casual glances, sometimes turning his whole body in a meandering, seemingly pointless circle. But it was clear that he was keeping track of everyone they passed.
+
+When they reached the ferry's end, the ferryman and his boy got to work landing the craft, unsecuring the wagon, and preparing for the next passenger. True to his word, as soon as they rolled off the ferry and began to roll the wagon up the river bank, the ferryman turned to his work and ignored their presence completley. He might as well ahve not had any passengers from the lack of interest that he displayed.
+
+"We can only hope that his memory is as bad as he said."
+
+"Look at him," was Manan's reponse. "He doesn't even look like he knows we exist now."
+
+"Yes, for now. But when a man's life hangs in the balance, it is amazing what he can suddenly remember."
+
+"Do you think that it would come to that?"
+
+"Hard to say. It all depends on how deeply you've woudned the powerful people who took charge of Ethne."
+
+"Why would they care? They can burn coal dust in their grates, for all I care."
+
+"You are forgetting the importance of image."
+
+"What does that mean?"
+
+"It means that the need to keep up appearances will compel people to do things they wouldn't normally, not even if the actual thing is of little importance. A peaceful man may feel that his peace depends upon some swift and sudden act of violence. Maybe a wealthy person does not want anyone to realize that their wealth is a lie."
+
+Was Quill revealing something about himself? Manan could not tell. They rode on in silence for some time until a rider appeared on the road behind. It followed them for some time, staying at the same distance, neither falling back or passing them. Quill glanced back at the rider several times, but tried to seem calm about being followed.
+
+Up ahead a stone house sat on the road, Manan could just make out a few soliders sauntering in front of it. An eagle or some other kind of bird was circuling overhead. "Manan," Quill said to her. "Slip back into the wagon. Hide your whatever weapons you have, anything of value that you don't want taken."
+
+She did so without asking why, figuring that these soliders must have a reputatino for lifting items off of travelers, especially passengers who weren't under the lord's protection. When she sat back next to him, he leaned over, casually, and said, "I think there's going to be some trouble up ahead. But let's be calm about it. I could be wrong."
+
+"Where are we going? How do you know?
+
+"I'm coming home, Manan. And I haven't been home in many, many years."
+
+***
+
+The rider behind them shot past, raising dirt as he did. He raced past the guard post as well. Two of the guards sauntered into the road and lowered their pikes. Manan tugged on the reins gently and the beast began to slow down. They stopped well short of the guards and the guard post and sat there, waiting for the guards to approach them.
+
+The two guards glanced at each other, then up to the house's upper window. Veiled in the dark, Manan could just make out the tip of a bolt locked into a crossbow and pointed at them. They didn't advance though, but held their ground there in the road.
+
+"Do we say something?" Manan asked Quill.
+
+"No, we wait to see."
+
+"What are they doing?"
+
+"Protocol. They're waiting for a message to return from Lord Corby's Master of the Guards, Trent, if memory serves. That bird up above is keeping tbas on us too, you know. Has been for the last few miles."
+
+"They knew I was coming, how did they know?" Manan looked around. She could probably make it into the woods, but who knew how far she could go before a rider rode her down or some loyal peasant called her out.
+
+"Child, not everything in this world turns around you. They're interested in me."
+
+"In you?" 
+
+Before Manan could follow up with more questions, another rider appeared down the road. He reined up his horse at the house. Another soldier, dressed more finely, with a well manicured beard walked out of the house. The rider handed him a slip of paper. The captiain, or so Manan took him to be, nodded and waved the guards forward. The captain whislted and the bird began swooping down in a gyre and landed on his shoulder. 
+
+The brown headed bird bobbed back and forth, stepping side the side, as the captain walked forward with this guards. When they were within a few feet of the wagon, the guards lowered their pikes into a striking position. "Are you, as you appear to be, Hirath Wren, second son of Constantine Wren, the former Lord of Corby?"
+
+"I am."
+
+"Then sir, by the order of Lord Corby's Master of Guards and in the name of Lord Corby, the land protect his body, I pronounce you a traitor Lord and under arrest, to be detained in the deungeons of Castle Corby indefinitely. Guards seize this man and his girl. This property is now Lord Corby's. You may take them away and plunder what you find in the wagon."
+
+"No! You can't! He..." Manan was about to shout that she was being  held hostage, but he looked at her with a sad but encouraging look. As if to say that he wanted her to say it, to protect herself, but was made tired by the whole affair. But she stopped short and fell silent and let the guards shackle her hands.
+
+They led her and Quill into the guard's house, where they were made to kneel on the floor and wait for the jailer to send for them. Manan could heard the guards rifling through the wagon--mostly curses that they didn't find treasure, just old pots and plants. More horse hoofs soudned on the road. Then it soudned like the beast and the wagon were led away.
+
+A grizzled and scarred solider entered the house. The captain bowed in deference, saying, "Master Trent. Here are the traitor and his girl."
+
+"Please leave us."
+
+"Yes, sir."
+
+Master Trent pulled a chair near Quill and Manan. He sat down and removed his gloves slowly. His clothing was covered in dust. "You picked a fine day to return Hirath. There's unrest along the south border and I was supposed to travel there to review the situation. But his lordship calls me to a little guard post down a dusty road to intend to a matter of grave security."
+
+"And I am a matter of grave security, now?" Quill responded. 
+
+"That's what I am here to find out. And you, girl, what is your name?"
+
+She glanced at Quill, but his face did not move. "Mmm...Manan..."
+
+"A stutter? Are you dumb too?"
+
+"No, I am not!"
+
+"Good, then once we loosen your tongue you can use it to tell us stories about our mutual friend here. I look forward to it immensenly."
+
+"She's innocnet, Trent. You should let her go now..."
+
+"Why? So that she can spread discord and confusion like you? I have no doubt she's a disciple of yours. Even a brush with you has been known to corrupt."
+
+"Then I only beg that mercy be shown her, in the name of Lord Corby." Master Trent's heavy hand whipped across Quill's face, making a popping sound. "You will not speak his name in my presnece." He turned to leave. "You made a mistake coming here, Hirath. A mistake that I shall enjoy thoroughly."
+
+##Chapter 12##
+
+Once again, Manan found herself imprisoned in a cell. At least now, she was buried somewhere down in the bowels of the castle, where it was damp, but warm enough. She had been given a plain prisoner's dress, with two crudely stitched pockets in front. She felt bare without her vests and wraps with their endless number of pockets and places to tuck away this and that. Fortunately, she had hidden her most valuable possessions and her weapons. But the guards had enjoyed a good laught stripping "their little witch" as little vials and pouches fell this way and that across the floor when she was stripped before entering the dungeon.
+
+At night, after the guards' fires had been stamped out, the cells grew colder. Manan would shove her hands as deep as they could go into these two pockets, rubbing her thumb across the tops of her finger, trying to keep them warm. Night time was the worse part of her captivity. Without the fires, the cells fell into darkness. It was in the pitch black that the other prisoners began to wail and scratch and scream. Otherwise, despair silence them. There was only the crude ramblings of the guards to listen to.
+
+Try as she might, she could not pick up any information from the guards. It wasn't any cleverness on their part either. These really were low creatures that worked down here. After all, they only had to exert enough will to sit in one place for several hours at a time. Their brillance only came through in the many ways they passed that time--games with bones and dice, telling dirty stories, sharpening their weapons, and so on.
+
+Fortunatley Manan provided them with new sport. They spent countless hours jeering over the ways that she would be tortured and killed. They imagined lavish scenarios involving strange machines that Manan had never heard of before. Most of the stories ended with her being fed to some kind of wild animal, mostly their Lord's dogs. But of those dogs, they singled out one in particular, an old limping mutt named Hirath, whose master had a tendency to kick and berate. It seemed that this dog, named for the infernal traitor himself, was prone to vomiting up its food and eating it up again. 
+
+She had not seen or heard of Quill since being thrown into her little cell. She tried to work over in her mind what must have happened. Their capture happened so suddenly that the events still needed sorting out. In particular, she thought over what betrayal Quill must have committed to be considered dangerous after all of these years. But these thoughts were little more than her equivalnet of the guard's bawdy tales, a torrent of words with repetitive action and resolving on nothing.
+
+Despite the grim circumstances, Manan's spirits remained high. She even held onto the belief that she would find a way out of this mess. Perhaps it was due to the nature fo her life up till now. Being flung from one set of circumstances to the next had made her very resilient. There had always been the next horizon to aim for, so why would that change now?
+
+After several days spent in the dungeon, one of the guards, whom Manan had taken to calling Meat, because he seemed to always be roasting something over the guards fire, struck her cell with his guard's stick, waking her up from a mid-day nap. "Get up you. Time to see the Father."
+
+"Who?"
+
+"The Father! The Father!" he said, unhelpfully, banging the cell bars more as he repeated this enigmatic name. Manan wondered if this would be the torturer who would wring some kind of confession from her. "Come on, no lip. Move now!" The guard opened the door and Manan walked out, stumbled actually, but the guard shoved her back on her two feet.
+
+He led her up to another level of the dungeon, to a much less dreary spot. Here the walls had been whitewashed and little portals up above let in light from the outside. There weren't cells here, as much as apartments--solid walls, wooden door, and barred windows kept the prisoners at bay. The place still smelled vile, but the atmosphere was generally more genteel.
+
+The guard led her to a cell that could hardly be called a cell since the door was left wide open. He poked her inside with his stick. She stumbled into a large cell with a roaring fireplace, a table and chair, a fine looking bed. In padded chair sat an old man with a sleeping cap on his head. He wore fingerless gloves, and a tattered coat. His face was ashy gray, but closely shaven. He looked like an old gentleman who happned to be transported to this unlikely setting.
+
+"Here's the Father, girl. Mind you tongue. And nothing stupid."
+
+The guard turned to leave. The Father looked up from a book he read, "Ah, the new girl, are you?"
+
+"Yes, yes, sir." Manan said, curseying as she did.
+
+"My visitors often are so kind to come see me. They often leave even the smallest consideration. I beg them not too, but often they are overwhelmed by their gratitude that they do anyway." The man rubbed his hands together and licked his lips, watching Manan as he did. She stared back at him dumbly, not knowing what to do.
+
+"Ah, well, the spirit moves some sooner than others, I suppose. Come sit, sit, child." He gestured to a very low stool in front of the chair where he sat. She crouched down on it, lookign up at him, as if awaiting a story from an ancient grandfather. "Comfortable?"
+
+Of course she wasn't, but she wasn't crazy enough to say so, "Yes, sir, it's a very nice stool."
+
+"I should imagine so. You would be amazed if I were to recall some of the visitors who have been so considerate as to call on me during their stay in this...place. Fine gentleman, great ladies. They have all sat where you are now. Even the low ones. I entertain the low ones too, to lift their spirits. I try to say encouraging words, even to convert them."
+
+"Convert them, sir?"
+
+"Why from the ways of darkness, of course. To see the light, as I have. To give up their base desires, their stubborn clinging to worldly things. Why all of this," he pointed to his comfortable cell, "is a testament to my devotion to this idea. No, this cause, I call it. I am humbled everyday while here, and am the better for it. Just as you shall be as soon as you give up..." 
+
+"Treason, sir. I am here for treason."
+
+The charge didn't move the man at all. He didn't blink or blush. "Well, reflect on me and my situation. See how plainly I live, how pure, how simple. Reflect on this child, learn from this, and you would sooner committ..."
+
+"Treason, Father."
+
+"...treason, yes. You would sooner commit treason again than murder your own mother." He finished his speech and slapped his knees, "Now, I am parched. Please prepare some tea. There's a kettle over there near the hearth. Oh, and be sure to sweep the ashed that spilled from the fire this morning. I can't tolerate mess."
+
+***
+
+Manan must have performed her duties to the Father's satisfaction because soon she was called back to his cell often. Then every morning, one of the guards would rouse her and lead her to the Father. She would warm water for his morning shave, prepare coffee for him, and lay out his morning meal. The Father's meals were lavish compared to the fare she was used to down below. But she quickly realized that the Father received special "considerations" from the other prisons. Sometimes the guards even passed along little confections, warm baked bread, a slice of fine meat. Even they held the Father in a special reverence and seemed almost as proud to serve him and their own Lord Corby.
+
+As the Father's new favorite, Manan began to receive special treatment too. Her prisoner's dress was replaced by something more "presentable" as the Father called it, and was probably a handme down from some little lady in the castle. But it was comfortable enough and kept Manan much warmer than her other clothes. She understood that she was not to partake of the Father's meals, but she received better food as well.
+
+It wasn't long before the Father pointed to a corner of the cell and said, "This is a very dry and cozy corner, wouldn't you say?"
+
+"Yes, Father, it is a very pleasant corner."
+
+"A pleasant corner for a pleasant young lady, I would say, wouldn't you?"
+
+"If I were asked, yes I would."
+
+"Well, I am asking..." Manan had grown so used to the Father's indirect way of talking, that she took his meaning immediately. She was to sleep in the Father's cell in the little corner. She didn't pause to consider whether or not she wanted to be a de facto servant. It was immediatley clear to her that she would do it. 
+
+She had no belongings so moving day was as simple as being led to the Father's cell one last time. After that the guards didn't come back for her. In fact, after she moved, they seemed to pay very little attention to her. She ran little errands for the Father, and for the guards. Even though she was the "traitor's girl," she began to move as freely about the place as if she had just decided that living in a jail would be a pleasant and normal thing.
+
+The only other contact that she had with the guards occured when they brought a new resident to see the Father. The Father seemed to know when someone new had been thrown into a jail. He would say to her, "Make the place especially tidy, girl. We'll be having visitors soon to pay their respects." Without fail he was right. Some thief or murder would stop by, abject, pitiful, and shamed. At the mention of a consideration, some would blush, others would produce some small bit of coin, or a knick knack of questionable value. 
+
+Manan was surpised by the steady flow of prisoners in and out of the jail. She gathered that the border rebellions that Master Trent referred to was the source of most. But it also seemed that Lord Corby was a tempestous man, easily slighted, and quick to anger. She was sometimes shocked by the causes for imprisonment that the Father's vistors recited. Eating habits, mispronounced words, a sloppy appearance were all likely to send someone to the dungeons, even lords and knights.
+
+With every new visitor, every time she passed the guard, Manan tried to catch news about Quill. But she heard and learned nothing, leaving her to vascillate between hope and despair about this fate. Whereever he was and whatever was happening to his, he had not been sent to visit the Father, leaving MAnan to assume that Lord Corby had prepared special accomodations for him.
+
+***
+
+The Father protested lightly when the guards came for her one day. "What am I to do without my mouseling?" he asked them. Since she slept in the corner in a pile of shredded paper, he had taken to calling her "mouseling."
+
+"Sorry, Father. But we've got orders. We're to take the girl."
+
+"But you'll bring her back, of course."
+
+"Of course Father, don't you worry. Oh, and you'll be having some company soon. You can count on it."
+
+"Well then you simply must bring her back to me and quikcly as you can. I'm helpless without my mouseling. Simply helpless."
+
+As the guards led her away, the Father's headed nodded as he dozed off again and slept. At the guard's station, a guard she had named Sup threw a cover over her head and bound her wrists together. "Well be walking for a time. But you don't need to know where."
+
+Even through the heavy cloth bag around her head, Manan relished the fresh, crisp air outside the jail. The world seemed so noisy and the sun beamed through the cloth, lighting up each fiber. She felt the urge to run and jump and play. She wanted to relish the world in a way she never had before now. Manan realized how precious her freedom really had been.
+
+Soon enough she was led back inside, apparently to a tower of considerable size. The guard led up a winding staircase, for what seemed to be hundreds of feet. A heavy door scraped against stone, shut again and the bag was removed from her head. As she looked around, she could have been back in the Master's tower. She was in a great room. In the center was a large wooden chair with a variety of rods stuck to it. Near the chair was a long table with bowls, rags, instruments, and jars of powders and liquids. Clearly, this was the interrogation room.
+
+She saw Master Trent standing near the chair. Near him was a tall, lean woman. She had a haughty, removed look about her. Her features were sharp, her hair pulled back tightly. She wore tight fitting breeches and tunic. Dark gloves covered her hands. If this was the torture chamber, this woman must be the torturer.
+
+The guards sat Manan in the chair and strapped her down. She tried to struggle, but mostly did it for show, since she knew she would not be able to escape. Master Trent nodded at the woman and stepped towards Manan. "Do you know why you are here?"
+
+Manan did not answer.
+
+"I asked you a question, traitor. Do you know why you are here?"
+
+Again no answer.
+
+He slapped her several times, heavy blows like the one he had given Quill. Manan could feel her face puffing and blood running from her mouth. The woman stepped forward now, "Master Trent, I would prefer that you not damage my patient."
+
+"Hmmm," the old guard muttered. He gave way to this woman, whose opioions obviously held sway over his. "A heavy fist has only been enough to produce the truth."
+
+"Maybe on the battlefield, but here we have other methods." The woman smiled, suddenly trying to look like a serene angel. It was concivncing enough, Manan had to give her that.
+
+As the torture proceeded, it became clear that the woman's methods were more subtle, though no less painful. In fact, Manan started to wish that Master Trent would deliver a few swift blows, maybe kick her a few times, and leave her be. This woman had her whole body screwed up into unnatural positions. Manan's arms were stretched and torqued back on the rods that attached to the chairs. The woman put screws seemingly to every fragile part of her body. 
+
+The woman leaned back the chair, covered Manan's head again, and began to pour water over her face. All of her breath left her body, she started to gag and flail. Yet the water continued to be poured, over and over again. MAnan felt like she had been sent to bottom of a well, sent there to drown over and over again.
+
+When the woman stopped and propped her up, she removed the head covering, smiled and said, "There is a very easy way to make this all stop."
+
+***
+
+The torture didn't stop, because it couldn't. Having been beaten and stretched and nearly drowned, Manan could hardly think of a convincing lie. And the truth, which she offered up freely, wasn't compelling enough either. She had only known this man for a few weeks or so. She didn't know that he was a traitor. She knew nothing about future plots. There were no conspirators, though Manan did consider offering up the Master and his followers, assuming they were still alive.
+
+So the pain continued. It blossomed from places Manan didn't know pain could grow. Her whole being was given over to the pain. She would have said anything to make it stop, if only she could remember anything to say. The woman who directed and administered the pain never seemed frustrated or angry by the lack of progress. She seemed ot exist outside of normal time, a time wherein slowly severing a fingertip could take all day. And in Manan's case, it it. Then cauterizing it became the follow up act.
+
+When they took her back to the Father's cell, he was asleep, and rolled out of bed. "Oh, dear, dear. What did they do to my mouseling? This won't do. This won't do at all."
+
+Manan, broken in pieces, covered in dried blood, and missing the tip of her index finger, curled up in a shredded paper nest, and pretended to be the mousling that the Father called her.
+
+In the morning, the guard called Meat brough the Father's breakfast and informed him that a special visitor would be coming by later in the day. The guard roused Manan, saying "You've got work to do, little girl. Time to get on yer feet."
+
+Manan pulled herself up off the ground, in more pain than she could imagine was possible. Somehow, she staggered forward, taking one step then another. Soon enough the pain was just a dull background ache. She tried to give her mind totally over to the menail job of tending to the Father. He didn't comment on her appearance or what had happened to her. When he saw her fingertip, he made a little "tsk tsk" sound, but she wasn't sure if this was directed at her or someone else.
+
+"Mouseling, be sure that the table is clear and the rug is clean for our visitor today. I want the tea to be hot. And warm some of those biscuits on the shelf. A fine lady brought those for me today. I am in the mood to share. I do hope that we have a considerate visitor though. I am tired of the ones that keep passing through. They seem overly anxious to leave my company. I much prefer that we sit and have a nice chat before parting ways."
+
+Much of this dialog Manan only half heard. She couldn't hear well out of her left ear for somereason. Maybe her swollen left eye had something to do with it, thogh there was no real reason that this should be the case. The Father read while she was swept the cell, cleaned the ashes from the hearth, and tidied his bed. While the Father napped, she lay out flat on the floor, staring at the ceiling above her, wondering when her body would stop hurting.
+
+Throughout the day, several of the neighboring inmates, who were also allowed more freedom and come and go, stopped by and paid their respects to the Father. Manan did her best to stay out of sight, knowing that the Father wouldn't want her seen, and not wanting be seen herself. She couldn't help herself from jumping out of the dark shadows when she saw the back of someone she recognized. 
+
+Only this back stood straight and tall and two able feet carried it along. But the back unmistakaebly was Quill's. She leapt out and hugged him, only to be pushed back by one of the guards. "Mouseling, what's this? Who's this?" He looked up at the visitor, "You! How dare you come here! Take him away! Out of my sight!"
+
+"Hello, father," Quill said, smiling. "I'm glad to see you're well."
+
+"You're no longer a son of mine! Take him away from me."
