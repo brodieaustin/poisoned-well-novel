@@ -1678,8 +1678,126 @@ Much of this dialog Manan only half heard. She couldn't hear well out of her lef
 
 Throughout the day, several of the neighboring inmates, who were also allowed more freedom and come and go, stopped by and paid their respects to the Father. Manan did her best to stay out of sight, knowing that the Father wouldn't want her seen, and not wanting be seen herself. She couldn't help herself from jumping out of the dark shadows when she saw the back of someone she recognized. 
 
-Only this back stood straight and tall and two able feet carried it along. But the back unmistakaebly was Quill's. She leapt out and hugged him, only to be pushed back by one of the guards. "Mouseling, what's this? Who's this?" He looked up at the visitor, "You! How dare you come here! Take him away! Out of my sight!"
+Only his back stood straight and tall and two able feet carried it along. But the back unmistakaebly was Quill's. She leapt out and hugged him, only to be pushed back by one of the guards. "Mouseling, what's this? Who's this?" He looked up at the visitor, "You! How dare you come here! Take him away! Out of my sight!"
 
 "Hello, father," Quill said, smiling. "I'm glad to see you're well."
 
 "You're no longer a son of mine! Take him away from me."
+
+##Chapter 13##
+
+"That's hardly fair, after all of these years, father," Quill said, moving to sit in the one of the chairs at the table near the Father. Manan could not decipher whether or not Quill meant that the FAther was his father, or was simply carrying some kind of joke too far. But she was also preoccupied with studying this new version of Quill, or was this Hirath now?
+
+He still seemed amused and slightly removed, but his face wore a much easier look and his body seemed less tensed up. Seeing this more natural and relaxed posture made Manan realize how comical his hunched, crippled act had been. The Father, howver, was fluttering around the cell, wringing his hands, muttering, "He returned and he wasn't meant to return. How can this be. Where are the guards? Mouseling, Mouseling, go fetch the guards."
+
+"No, stay 'Mouseling'. I have a story to tell that I think you will enjoy. Is your mouseling able to sit and enjoy a story father, or is obliged to work to death, like so many of your subjects before?"
+
+"That is unfair. An unfair charge. I built this, all of this. Without me none of this would exist."
+
+"He's right, 'Mouseling.' Without the efforts of this man before us, none of this would exist. You seemed surprised? Did he not tell you that he is none other than Constantine Wren, the first Lord of Corby." Of course, Manan had no idea. "Yes, yes, I can see the questions forming on your face. Well, sit down and I will explain how the first Lord of Corby became a prisoner in his own dungeon. Of course, we must start with the fact that Constantine Wren is an invented name. This man was first known as Baruth. When I was a small boy, this was the name that men called him. Baruth was a skilled and ambitious soldier, who turned a fortune made from plunder during war into a larger fortune during trade. But his ambitions did not stop at being the largest land owner, the first among the old line of gentry in this land. He had his sights on the throne. He would be lord and leige over all these men and land."
+
+"His money bought secret armies. There was even a certain brotherhood that was once connected to Baruth, who now styled himself 'Constantine Wren.' In every lord's household men lay in wait making secret signs to each other, ready to strike when the call came. By now, I was young man, probably not much older than you mouseling. Oh, and my brother, of course, well my half brother. We didn't know about him, mother and I. But when Constantine felt the time was right to strike, he introduced into his household his natural son, my brother born of another mother, the daughter of a lord he hoped to make an alliance with."
+
+"The ploy worked, and as he elevated himself by will, so he elevated this boy. Did I resent my new found brother? No, mouseling, I did not. I recalled the string of stillborn brothers and sisters my mother tried to give me. I had always hoped to have a young brother to run with and hunt with and shares our secrets. We would be bound to each other, this imagined brother and myself."
+
+"That was my hope, but my hopes had little to do with reality. My new found brother was secretive and cruel and nasty. He immediately took to the idea that my friendly gestures were meant to draw him into a trap. He set himself against me, and set my father against me too. Or at least he planted the seeds...but I am getting ahead of myself."
+
+"One by one, the gentry fell, toppled by Constantive Wren, now Lord Corby, and his secret armies. When the ancient great houses lay in ruin, his first act was the build a grand castle and establish a town around it, to mark the new era. He made the lords and ladies work the stone themslves, made them haul the ruins of their own houses to this spot. They had to build Castle Corby with the wreck of their former lives."
+
+"Traiters were rounded up and pressed into slavery too. Many died building this hulking thing. Blood ran freely from the whip and the sword. I protested one too many times and was sent into exile, the first of many. I secretly returned earlier than anyone expected, worked my way into the new houses that were being built. I worked inte kitchens, in the stables, in the fields. I lowered myself and watched and learned."
+
+"No, you must stop this story! This is not a good story!" the Father was writhing in his chair. Quill's story completely made him come undone. But Manan noticed how disconnected he seemed from the story, as if it was about someone else. Maybe he really had become the Father of the dungens in his mind and remembered nothing of this former time, or saw it as if in the bottom of a well, as a series of dark and broken images.
+
+"I'm sorry father, but I am in a narrating mood, so I will continue narrating. I didn't make myself known until I learned that my mother had been murdered by one of Lord Corby's...thugs. I stole into my father's chamber one night, and tried to reason with him, to draw out some humanity in him. I failed and ended up in the castle dungeon for my efforst--again, the first of many times."
+
+"Little did my father know that his other son was just as cruel and ambitious as him, if not more so. He paid a woman, a traveler who bore a striking resemblance to my mother to appear before my father..."
+
+"No! You musn't! I can see! I can hear the voices, the screams...Oh no..." the Father lunged for his bed, and pulled at his hair. He whined and rocked back and forth.
+
+"Well, I think you can see the end result of my brother's efforts. Lord Corby lost his mind, was unfit to rule, and my brother stepped in this place. I could not let this stand, particularly after I learned that it had been my brother's word that condemned my mother to death. With a few...friends of my own, I tried to assiinate my dear, sweet brother, now the second Lord of Corby. Poison, mouseling, which I tried to administer while my sweet brother slept. I didn't deliver enough to kill only, only to paralyze the left side of his body. Even now, I am told, Lord Corby does not smile from the left side. Of course, we should all be afraid if Lord Corby were to smile at all, but I digress."
+
+"Mouseling, the plot failed. On the eve of my execution, a kind soul helped me escape. I was amazed by all of the secret winding passages that were built into the castle. I can still vividly recall emerging into the stables where Lord Corby kept all manner of beast. Maybe you've heard of the stables at Castle Corby? They are large and grand, big enough for a fleet of wagons to be held. And well equipped with equipment and feed for a long ride. So, I was lucky that my guide knew to look at the lower parts of the walls for switches to reveal these passages. In the dark of night, we escaped and never looked back."
+
+"Is it done!? Enough of this story! Guards, send him away now!"
+
+"Fortunately for you, father, I am done with the story. I'm sure the walls have heard all that they needed to hear of this tired, old story too. What do you think Mouseling? Do you think the walls heard everything that I said?"
+
+Manan looked round and shrugged. Were they really being listened to? It explained why Quill had been allowed in the room. Someone or someones were closely monitoring him, to see if he let slip any useful information that they could use against him. Whether or not these listeners would cull from the story the important information that Manan did, she could not say, but she knew enough now to attempt an escape.
+
+The guards finally answered the Father's anquished cries for help and led Quill away, back to wherever they were keeping him. The Father immediately fell asleep to shut away the unpleasant events. Manan went about the rest of her chores, sweeping and polishing and tidying up. She couldnt help marvelling that she was playing chambermaid to a lord, an infamous monsterous lord who had lost his mind. 
+
+***
+
+The next morning, the Father tried to brush off the incidents from the day before. He tried to instruct her, "You mustn't let ghosts upset you, Mouseling. Things from the past belong in the past. Those things stay there and these things stay here. We just have to keep everything in its proper place. Then, only then, can we feel at ease. Feel peace."
+
+Manan was trying to keep everything in its proper place too, particularly the excitement she felt knowing that she could leave this place any day now. She only had to find a secret door and a latch and she would be free. Of course, the whole process would be more complicated than that, but she took the Father's advice. Keep those things in their place. She would focus on finding a door for now.
+
+Unfortunately, the Father kept her very busy. Between attending to him and his chamber, and preparing for and cleaing up after the many visits and calls he received, she had no time to explore. She quickly learned though, that there weren't any passages leading into this room. She swept each corner of the room thoroughly with a little wispy twigish broom. The Father even praised her for being so thorough, "Excellent work, Mouseling. The floor has never looked better. You really are an excellent mouseling." But her furtive scans of the floor during sweeping did not detect any gaps or latches. 
+
+Finally, an opportunity arose to search the area outside the cell more completely. News spread quickly that there was to be an execution later in the day. From what Manan could piece together from the excited, whispered discussions among the prisoners and guards, the castle apothecary was going to be hanged for sorcery and murder. The sorcery itself was not a capital crime, but mixing spells and death were likely to get one killed.
+
+It seemed that a ferryman had been found dead near the riverside. His boy could not be found for questioning; he disappeared as soon as his master fell down dead. Three large bottles of potion found near the ferryman's body. What was strange, though, and surprised Manan was the state in whcih they found the ferryman's body. From what she gathered he had been burned alive, but burned from the inside, as if a flame had grown in his gut and worked its way through him.
+
+She mentally cataloged the ingredients that she had selected for the tonic, but nothing seemed amiss, unless something had done bad. But all of the ingredients had smelled just fine. Regardless, at least Lord Corby's men had not traced his death back to Quill and herself. It also turned out that the apothecary who suppplied the tonics was a known conspirator against Lord Corby and his people. A whole plot was revealed to be forming to poison his Lordship, with the evil apothecary behind the plan.
+
+Such was the world that Lord Corby had created. Trusted servants, long time friends, even family members could be rounded up, tortured, made to confess to the most heinous of acts, then summarily killed in public. The people, at least the people in the dungeon, seemed to have grown accustomed to this world. Their bloodlust made Manan, who had never shied from killing someone if it ensured her surival, feel uncomfortable. The inmates seemed to forget their own situation was as precarious as this poor apothecary's. Any one fo them culd be haging at the gibbet tomorrow. But acting as if they were the Father's disciples, they must have kept those thoughts over there. In the here and now, they all just wanted to see the man swiging and kicking from the rope.
+
+For her part, Manan felt some small creeping sense of guilt that she woudl be the caues fo this man's death. Whether or not he was truly a traitor mattered little to Manan. The politics of this place meant nothing to her. She didn't have the patience to follow the intricate and deeply paranoid threads she heard spun out about how this person was in league with that person against some other person.
+
+Stopping the whole thing would be madness. She would not step in his place. But she at least wanted to see this man face to face and decide if he really deserved to die or not. Maybe her mistake would result in ridding the world of villan, a happy accident if this was the case. The Father had no interest in having the traitor pay him respects. When she brought up the subject before him, he merely waved away the idea, "I have no time for traitors. I will not be tainted by them."
+
+But the guards did not need to know this. She told Meat that the Father had given her a message to deliver to the traitor. "He's a dangerous one, that one. Be careful in there mouseling," he said. The Father's epithet quickly clung to her wherever she went.
+
+She went down severl levels in the dungeon before she came to the apothecary's cell. Being in the dungeon had already broken him. He sat on the floor, in a puddle of his urine. He smelled of alchohol and piss. "Are...are you here to administer mercy?" he asked, not even looking up.
+
+"No, I'm just here to deliver a message."
+
+The man looked up, his eyes bright red and watery, "A message?"
+
+"From the Father of Castle Corby's dungeons. He tells you to not loose hope. That things belong in their proper place." The Father had said no such thing, and Manan just filled in some empty phrase and a pretext for being here.
+
+"Just words. Don't you see that I don't have time for words. I'm a condemned man. Who are you anyway?"
+
+"A nobody. I live here, in the jails."
+
+"Ah, a nobody and a shadow like me. At least your checks are flush with life. Mine will be pale and hollow before the end of the day. Do you realize that they're going to kill me and tell lies about me."
+
+"Lies?"
+
+"About the potions and the plot. I had nothing to do with any of it, I swear."
+
+"But..." Manan stepped closer and leaned into the man, "is it true what they're saying?"
+
+"What are they saying?"
+
+"That he burned form the inside?"
+
+"How am I to know?"
+
+"Well, if you poisoned..."
+
+"I tell you that I did not. I did no such thing. I'm a doctor, a healer. I don't murder people. And I'm loyal to his lordship. I have tended to him since he was a boy and would have coughing fits after runnign through the spring fields."
+
+"But is it even possible?"
+
+"What?"
+
+"Dying like that?"
+
+"I don't know..." but the man's curiosity about it overcame his despondency. "There may be ways. But not many. And why would you care?"
+
+Manan thought of a good lie, "Maybe if you tell me, then I can try to deliver a message to someone, convince someone that you're innocent."
+
+"Yes, that might work. You're right. If I can explain the death, then it will show that I'm innocent. Well, I can tell you right now that hte bottles the held the potions were very exotic, and not from here."
+
+"How do you know?"
+
+"Because I saw them."
+
+"Saw them?"
+
+"Yes, I was there when the body was searched and investigated. I wasn't arrested until we returned to the castle." This did seem like particuarly cruel treatment.
+
+"And this has never happened before, this kind of death?"
+
+"There are stories, old stories, about tainted waters that could cause this, but they're little more than legends."
