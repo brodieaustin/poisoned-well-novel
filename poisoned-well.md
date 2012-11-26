@@ -16,7 +16,7 @@ confrontation with water women
 
 The arrows, hurtled from the dark recesses of the trees, fell around them, skidding stupidly along the ice. Manan, running at full tilt, felt giddy and powerful and terrified all at the same time. The other girl, whose hand she gripped tightly, seemed less buoyed by the hail of flint, wood, and arrows. Manan gave her a rough tug just before an arrow landed right at their heels. It bounced, tipped, and veered away. We may just make it, she thought, seeing the ice lake's shore just ahead.
 
-Whoever let the next arrow fly, however, had a truer aim. The arrow didn't find it's mark, but it grazed the other girl's calf, shredding the folds of rough spun blankets, leaving a trail of blood behind. Fortunately for Manan, the girl was so insensible that the wound didn't seem to phase her. The girl just groaned and continued being pulled along the ice.
+Whoever let the next arrow fly, however, had a truer aim. The arrow didn't find its mark, but it grazed the other girl's calf, shredding the folds of rough spun blankets, leaving a trail of blood behind. Fortunately for Manan, the girl was so insensible that the wound didn't seem to phase her. The girl just groaned and continued being pulled along the ice.
 
 Manon tried not to look back, tried to keep her eyes trained on the shore line that grew nearer and nearer. She could start to see shapes of the trees emerge from the dark rough mass that stood there previously. With her senses fired up the way they though, everything stood out sharply, including the streaks of fire in the dark sky. The dry, brittle brush along the lake caught fire and began to light up the night. 
 
@@ -1784,7 +1784,7 @@ The man looked up, his eyes bright red and watery, "A message?"
 
 "Dying like that?"
 
-"I don't know..." but the man's curiosity about it overcame his despondency. "There may be ways. But not many. And why would you care?"
+"I...I don't know..." but the man's curiosity about it overcame his despondency. "There may be ways. But not many. And why would you care?"
 
 Manan thought of a good lie, "Maybe if you tell me, then I can try to deliver a message to someone, convince someone that you're innocent."
 
@@ -1801,3 +1801,97 @@ Manan thought of a good lie, "Maybe if you tell me, then I can try to deliver a 
 "And this has never happened before, this kind of death?"
 
 "There are stories, old stories, about tainted waters that could cause this, but they're little more than legends."
+
+"But I could tell them this. That there was a poisoned well, perhaps, and that it was all an accident."
+
+"Yes, an accident. A terrible misunderstanding. Tell them that. Try to tell R, his lordship's steward. We were friends going back many years. We were both in Lord Corby's camp during the wars. We trust each other. If only R could know that this is a terrible accident."
+
+"But it doesn't clear up where the water might have come from."
+
+"No, but it couldbe from anywhere. There are hundreds of travellers that pass through everythign from Water Women to slavers. It could be anyone."
+
+Manan left the apothecary as he was cataloging more possible sources for the water. As she left, she passed the guards who were charged to escort the alleged murder to the gibbet. The apothecaries screams and cries echoed in the hall. Manan cupped her hands over her ears tightly as she ran past rows and rows of cells. Up ahead she was cell door sitting ajar and slipped into the empty cell. She was shaking uncontrollably, overcome with shame and guilt that she had caused this seemingly innocent man to be killed. 
+
+She reasoned that she hadn't known any better. And all of the rumors she heard suggested that the ferryman had consumed all three bottles of the tonic. Perhaps he had consumed too much. She had mixed a powerful concotion. But there was nothing she had done that would have killed a man. But the water... There had been something strange about the water. She felt its effects before. It wasn't like typical water. It had power. The little girl in the cottage was healed by it. It had the power to give light and fill someone with light. A burning light that lit up her insides.
+
+As she sat there in the gloom of the empty cell, she began scanning the bottom of the walls. It was then that she noticed a slight gap at beneath one of the stones. Manan slid across the stone floor, clearing a path through the dry, broken straw that had been a former prisoner's bedding. Her fingers glided along the rough cut of stone, then into the gap. It was just big enough for two fingers to slide in. Inside, she felt a lever that wobbled as she touched it. 
+
+She dug her finger in further, gave an upward tug and and square section of the wall popped out. The square opening was at shoulder height. The heavy stones were attached to a metal frame and hung on hinges. Manan had to press her back into wall and push hard to open the door further. Inside, the passageway was dark. A cool breeze blew over her face. She stood for several minutes, contemplating this opening. It was there just as Quill had said it would be. She recalled the rest of the story. The passageway should lead her right to the wagon and the beast. She would be free by nightfall.
+
+Even through the thick stone wall, Manan could hear the crowd shouting outside. Mingled with this faint cry was a louder sound of the prison inmates, many of whom were watching from their own cells. Another round of shouts, horns blared, then more shouting. Manan knew that the deed had been done, and that the apothecary was swining from a rope right now.
+
+The time to flee was now. Manan hopped up into the passageway.  She reached back for the door and saw a thick rope attached to the metal frame. She grabbed the rope and pulled with all of her strength. After some exertion, the door thudded shut and the latch clicked again. Manan was in complete darkness, in a tunnel she hoped would lead to freedom.
+
+***
+
+The passage didn't take a straight course, and sloped generally sloped downards, as best as she could tell. She kept a steady pace, even though her knees were scraping and banging on the stone. She even grew used to the darkness. Suddenly, Manan nearly fell as the passageway turned down. She tried to feel out the empty space laying on her back with her feet. There was not way to go but down. She groped around for the edge of the passage. Her hands roved down and felt a rung of a ladder. She flipped over on her stomach and slid down into the void.
+
+One by one, her feet searched out and found each ladder rung. One she got her hands fixed on them, she began her descent. The passageway grew smaller and Manan could feel the stone scratching at her back. The ladder was metal and cold in the darkness. But Manan held on tight and kept placing one foot after the other, one hand after the other.
+
+When the ladder ended, she couldn't feel any ground beneath her feet. There was nothing to see either. She tried to stretch her foot as far as it could go, but nothing. She tried to stretch further but her grip loosend and she fell. But landed hard on a compacted dirt floor. She could stand now, but barely.
+
+The path forked several times. Manan alternated her paths, left then right. She didn't want to end up walking a circle in the dark. The network of tunnels was vast. Manan was surprised that they were not guarded more closely. The tunnel became stone again and began to slope upwards. She must have cleared the central part of the system.
+
+Up ahead, Manan could make out a dim light pouring into the tunnel. As she got closer to the light, she could smell animal smells wafting into the tunnel. She felt encouraged that she had reached the stables. The light above came from a small grate in the floor. Manan worried about what scene she could find up when she popped out of the tunnel. But there was nothing to do but to climb up.
+
+Climbing up in the pale light was easier than in the pitch dark. At the top of the ladder, she pressed her face to the grate to try to assess the scene, but couldn't make out anything. Up close she realized that the grate was partially covered with straw. She assumed that it opened into a stall of some sort. The smell of dung and animal hide was particularly strong now. 
+
+She gave the grate a weak shove with her free hand, but it barely budged. It wasn't particularly heavy, but too hard to move while clinging to a ladder. Instead she pressed her shoulder into and thrusted up with her legs. The grate liften wobbled that slid to the side. It made a thud in the dirt and straw, but that was all.
+
+Manan peered up over the floor. She was right about the tunnel opening into a stall. Daylight was fading, and the stable was dim and shadowy. Manan lifted herself up and out and crawled into the shadows. She creeped forward and looked around. In the center of the stables, she could see the wagon. The beast, she hoped was nearby. But would she be able to hitch the wagon up and leave without being noticed?
+
+Even pressed in the shadows as she was, Manan felt vunerable. She had no weapons, no smoking powders to blind an oppoent, none of her usual tools to protect herself. And yet there they all were hidden in the wagon's smuggling compartment. She decided that she had to make a dash for the wagon, and at least try to retrieve a knife. 
+
+She listened carefully, but didn't hear anyone inside. Surely there was some stableboy tending to the animals, but maybe the execution had drawn everyone away. It was time to plunge forward, and so off she went, crouching low and quiet. A few of the animals, sensing her presence snorted or whined, but didn't seem to make much of her being there.
+
+She reached the wagon, climbed in and took in, with relief, the familiar sight of the wagon and its contents. A few cabinet doors were thrown open, but nothing seemed be distrubed. Obviously the soldiers had not relished the idea of plundering herbs and spices. Even the water jugs were still there. Sitting at the end, in particular, was the half full jug with water that Manan had used to make the ferryman's tonics, that she had sipped from, and administered as medicine to the little girl. 
+
+Suddenly a powerful thirst overcame her. Her lips felt dry and cracked. She could try the water and see if it really was tainted and dangerous. Just a sip would slack her thirst and put her mind at ease. She crouched down in the wagon's floor, and put her lips to the spout and began drinking freely. Once again the water coursed through her body, lighting her up, making her feel warm. Burning though? She wasn't sure. But she wanted more. She needed more. She would just let a few more drops drip in her mouth.
+
+On the floor, overcome by the potent effects of the water, Manan looked up at a young boy's face in a daze. "You're here," the face said. And, yes, she was there, at least most of her was.
+
+##Chapter 14##
+
+"He said you would come. I just had to keep looking for you. And you're here now."
+
+"Who said this? Who are you?"
+
+"I'm Jory. And the man, who called him Quill, said that you would come. That I should watch for you."
+
+Manan struggled to sit up. Her body was on fire, but she her mind felt cloudy. The boy's face kept going in and out of focus. Did he say that he was Quill? Quill wasn't a boy, as he? Maybe he had been and he was so good at diguise that she thought he was an older man. She started to laught at the thought of being led here by a fuzzy faced boy. She trired to stand, but fell back and crashed into the side of the wagon, banging her head.
+
+The boy asked if she was okay, but she kept laughing. "You're Quill? You're just a boy! And I'm a mouse! I'm a mouse!"
+
+"No, I'm not Quill. I'm Jory. And you're not a mouse, you're Manan." The boy crawled into the wagon and tried to coax her out. Manan slapped away his hands. He didn't want boy Quill touching her. "You need to be quiet. You're being too loud. We don't have much time."
+
+"Time for what?"
+
+"He wants you to come to him, and to bring water. I don't know what that means, but he said over and over again that you were to bring water with you."
+
+"Well, he doesn't want me to pee on him, does he?" And she started laughing again.
+
+"Maybe you need to rest before we go. But we don't have much time."
+
+Manan knew she needed to be serious, but where was serious Manan. Where had she gone? There was only the mouseling here. No Manan, no Manan at all. She was all gone and now it was only the mouseling. 
+
+The boy had disappeared and returned with something, a small bottle. He held it under his nose. Smelling salts. The bitter smell jolted her senses. Manan was back. There she was. "We really need to go now."
+
+"Hold on. Move back," she said. "Help me. Put your fingers there, lift up." Together they lifted up the plankings in the wagon and revealed the hidden stash of weapons and herbs and powders that she had hidden there. Manan retrieved a dagger, and stashed some of the vials in her dress. They replaced the planks, then she filled a bottle with water from the vessel. Why Quill wanted her to bring this, she could not say. But he had made it clear to the boy that she needed to do this, so she did.
+
+"Are you ready?" he asked.
+
+"Yes."
+
+They alighted from the wagon. "Here, throw this over you." He handed her a rough spun blanket. It smelled of damp and horse. Follow behind me, but notto close, prentend like you're a beggar. Just keep your head down and watch where I go.
+
+The town around the castle was densely packed and bustled, even at night. Near the stables, they passed through a market where the stalls were active with people buying and selling. Drink flowed freely from the taverns. Soldiers seemed to be everywhere. Some patroling the streets, others engaged in the various entertainments the town offered.
+
+A few people passing by acknowledged Jory with a nod or wave. No one made much notice of Manan. She blended into the scene as all of the other cripples and beggars did. Each time they turned into a new street, it seemed that there were more rattling cups, more street performers cajoling the crowds for money. 
+
+They made their way to the wall that ringing around the castle, keeping the riot of the town at bay, or so it appeared to Manan. A few guards milled around the main gate, which has drawn open. Manan lost sigh of Jory and stood in the middle of the road leading to the gate. The guards took notice of her. One of them shouted, "No hand outs for beggars tonight!"
+
+Manan pulled the blanket tight and nodded silently, then turned back, slipping into an alleyway between two buildings. She took a deep breath and tried to calm herself. Then there he was next to her, taking her hand and leading down the passageway and inside a building that seemed likely to topple over into its neighbor. It was empty, save for a broken chair and a turned over table. Jory stooped into the fireplace, felt along the outer edge of it. The back popped open, much as the hatch in the prison had. Then they were crouched in a tunnel, that seemed to lead in the direction of the castle.
+
+***
+
+Jory knew his way through the tunnels much better than Manan did. He had the advantage of a small lantern that he lit and held out in front of him. The lantern wasn't bright and didn't beam light into the darkness, but it gave off enough of a glow to allow them to see where they were going. He didn't speak to her, and she followed suit. 
