@@ -1942,4 +1942,76 @@ He unstoppered the bottle of water that Manan gave him. Another explosion went o
 
 When she looked back, Quill was administering the water to his brother. The body began to singe and the smell of burning flesh filled the room. Lord Corby was no more, just a corpose, burned from the inside out by the water she drew and gave to Quill.
 
-<!--they leave, but she is seized and takento slavers, did q betray her?-->
+***
+
+The castle and town were thrown into chaos by the explosions, fires, and fighting. Already mobs were roving the streets, looting stocks of weapons, food, and clothing. Quill and Manan slipped through the streets unnoticed, just some of the many people that were skirting from this place to that, trying to avoid being entangled in anything complicated.
+
+Manan felt confused by what exactly had happened. Had she just taken part in an assination? She wasn't entirely sure how the water had killed him so quickly, but she saw him writhing in pain and burning. She imagined the same thing happened to the ferry man. But she had had the water, why was she not affected the same way? But she had only had dribbles of it, small sips and doses. Was that the difference? Was there something else at work?
+
+By the time they reached the stables, though, she wasn't feeling well. Her skin was hot and prickly. Sweat beaded along her brow even as she kept wiping it away. She was able to keep on her feet though, and decided that the night's stress was getting to her. She helped Quill harness the beast to the wagon and prepare for their escape.
+
+"If we move fast, we can slip out before the city shuts down completely. We musn't draw attention to ourselves either."
+
+"Where will we go now?" Manan asked.
+
+"South, towards the borders, I think."
+
+South meant more chaos and eventually the flat lands that were dry and harsh. They were notable for the large slave and merchant caravans that criss crossed them connecting the worlds of the north with the south. She had only a few months near the flat lands, and only the perimeter at that. The towns and cities on the edges were already much rougher than the more genteel cities to the north and south. But it would easier for them to disappear there, because so many people did both willingly and unwillingly.
+
+"Manan...Manan, do you hear me?"
+
+She snapped to attention, realizing that she had been in a daze. "Yes, I'm sorry. What were you saying?"
+
+"Just that we need to leave. Get on."
+
+They huddled undernearth blankets to disguise themselves since there was still a chance that Master Trent and his men were part of the melee overtaking the city. They could be seized and dispatched very easily in the chaos. Manan hoped that the beast wouldn't panic in the streets. But as usual it seemed very self possessed and calm. It bent his large shaggy head down low and drew the wagon along with it.
+
+Even though they were such an easy target, no one took notice of them, allowing them to reach the city gates without even a wayward glance. The gates were only guarded by a dead guard who had been gutted with a field knife and left to die. A few weapons lay on the ground indicating that the remaining guards had dropped their weapons and run.
+
+"Hired hands don't die like heroes for their employers," Quill observed.
+
+In not much time, they could only see the glow of the burning city behind them above the trees. The shouting and fighting were distant echoes. The night sky was bright though, reminding Manan of the night she fled across the frozen lake with Ethne. She began to relax, slumping back and letting her eyes close. Now wasn't the time to bring up what happened in Lord Corby's chambers. She felt relieved to no longer be a prisoner and to be clear of stone walls and windows and bars.
+
+It was much better here in the open air. The night breezes animated the trees, making music from the rustling of brittle needles and dried leaves. In the dark of the woods, Manan could hear the cracking of animals padding across the forest floor, deer on the move from the fires. Maybe a possum shimmying up a tree or wild cats on the hunt and prowling.
+
+Then she realized that those sounds were prowling cats, they were the sound of men. Men who were filling the road, blocking their way. Manan looked to Quill to read his reaction. Surprisingly he had none. He did not look at her at all, but seemed to cling to the reins tightly. In fact, his whole body seemed tense. His jaw twitched under his face.
+
+Opposite them approached another wagon with two riders. Manan felt as if she were riding into a mirror. Only these riders were craggy looking man and an even rougher looking woman. Manan realized that the cart wasn't a pleasant domestic or merchant wagon like her won. But she could make out the bars and cross beams of a slaver's wagon.
+
+"What are slavers doing so far north?" Manan wondered out loud, but Quill didn't answer. He wasn't even trying to turn the beast, not that doing so would have done much good. The men blocking the road also seemed lean and quick. They wouldn't get far before being cut down by a sword or a spear.
+
+Quill drew back on the reins and the beast stopped in the road. The man on the wagon climbed down and waved one of the men blocking the road towards him. The man who stepped forward carried a hooked sword and seemed well versed in its use. As he drew nearer, Manan could make out the necklace of fingers and ears that bounced against his chest as they walked.
+
+"We'll be taking the girl now and whatever is in that wagon," the slaver announced.
+
+"We'll fight before that happens!" Manan shouted. But her defiance was undercut by the hot, queasy feeling she felt inside. She didn't know if she would be able to stand on her own two feet and fight or not.
+
+"Ha! A spirited girl. Normally a bad trait for a slave, but in your case this might fetch a pretty price."
+
+The man with the angled sword stepped forward, and grabbed the beast's harness. The beast shook its head and reared back to escape. The man drew back the sword, cut away the harness, then hacked savagely at the beast's neck. Blood flowed freely from the wound. Manan screamed, and started the leap up, but Quill held her back. The beast's front feet went limp first, pitching it head first to the ground. Its back followed suit and the beast died there on the road. 
+
+Quill's grip on her arm tightened. "What are you doing?" she cried out.
+
+"What must be done, as always," Quill replied. She tried to wrest herself away from him, but couldn't. The man with the angled sword approached from the other side. Manan was able to give him a rough kick to the face, catching the side of his mouth. The man smiled and licked away the little trickle of blood. It hardly made up for the gush that came from the beast.
+
+The slaver handed something to Quill who proceeded to stick Manan with a needle. A sedative. A sleeping potion. She felt heavy and tired. The burning inside didn't seem so bad now. She hardly felt it at all, hardly felt anything. And Manan rolled off the wagon into the slaver's arms.
+
+##Chapter 15##
+
+The sand and dust got everywhere. In her eyes, her nose, her mouth. In the creases between her toes since she had lost track of her shoes many, many miles back. The sand and dust seemed to coat her body inside her clothes, even though she only wore scant rags now. This part wasn't so bad. The flat lands were scorching hot. At least she wasn't forced to wear her mountain wraps and tunics.
+
+The slavers kept her isolated in a small cage. She was transferred from a larger one when the other slaves complained bitterly about being burned by her. One superstitious woman, who couldn't keep her rags covering her and went mostly naked, decried Manan as a witch who would blight them all. In the oppressive climate of the flat lands, it was easier even for the slavers to simply relocate Manan.
+
+It took her several days to fully recover from the sedative that Quill had jammed into her arm. When she woke, the slaver and his wife had already joined up with a larger caravan. After observing for a few days, Manan realized that her slaver was a a small time operator, who seemed to work on contract for the man that led the column, a man she only saw once. He had a dark, closely shaved beard and belly that hung out in all directions. He never spoke to her, or to anyone, but he clearly seemd to be in charge.
+
+His power stemmed, in no small part, from the handful of giants that he employed the guard the train. Manan had never seen men so large, they must have stood eight or nine feet tall. They hardly wore clothes themselves, making them look like visitors from another time. The giants covered their skin in brands, like stock animals, as well. Manan had only been able to study one giant's tatoos. They seemed to be designs of some sort, probably intended to ward off evil, assuming that they had placed the brands there voluntarily.
+
+All other information was lost to the burning sick feeling she felt. She wondered if this was how Ethne had felt when she began to be consume by fire. Even though Manan's aliment could have been any number of sicknesses, she convinced herself that she "had" what Ethne had. That her body too would becoming a flame, barely contained by skin, passing from her to everything around her if she wasn't careful.
+
+One day she grabbed on the bars of her cage tightly. The metal grew warm under her touch, but didn't sear or bend or melt as she was hoping. She probably wouldn't be burning whole men alive any time soon.
+
+Even though she was probably falling under this curse, Manan felt close the Ethne because of it and the though comforted her. The distance between them had been painful and awkward. Ethne's infantalism had challenged Manan and made her plans more complicated. But now were they ever to meet, they could engage each other as something more like equals. Strangely, Manan hoped she would get that chance, even though the odds were slim that she would ever see anyone that she knew again.
+
+Night time proved to be the worse time, not so much for her but for entire crop of slaves being sent across the flat lands. The temperatures dropped as soon as the sun fell in the sky. Huddled togthere, the slaves in the other cages could only get so warm dressed in their rags. Manan didn't concern herself with the temperature at all. The day time heat proved to be more of a challenge for her. But by night the exhausted, hungry slaves began their laments and cries. Some times they would even send up animal like howls, crowding out the real sounds of coyotes and birds and other creatures.
+
+Each day it seemed that a fresh body was being dumped by the side. Manan began to lose track of how many starved, parked, striken looking faces she saw staring up dead into the sun. The other slaves stopped weeping after the third or fourth one. In fact, Manan could hear grumbling coming from the other cages. A death meant a slow down, which meant more time spent in captivity in this wretched place. As soon as the caravan moved on, Manan would look back at the bodies. It never took long for the birds to spot the fresh meal and begin their ministrations over the dead.
