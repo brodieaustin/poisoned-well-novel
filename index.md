@@ -1691,8 +1691,6 @@ Only his back stood straight and tall and two able feet carried it along. But th
 
 "You're no longer a son of mine! Take him away from me."
 
-<a id="update"></a>
-
 ##Chapter 13##
 
 "That's hardly fair, after all of these years, father," Quill said, moving to sit in the one of the chairs at the table near the Father. Manan could not decipher whether or not Quill meant that the FAther was his father, or was simply carrying some kind of joke too far. But she was also preoccupied with studying this new version of Quill, or was this Hirath now?
@@ -1952,6 +1950,7 @@ He unstoppered the bottle of water that Manan gave him. Another explosion went o
 When she looked back, Quill was administering the water to his brother. The body began to singe and the smell of burning flesh filled the room. Lord Corby was no more, just a corpose, burned from the inside out by the water she drew and gave to Quill.
 
 ***
+<a id="update"></a>
 
 The castle and town were thrown into chaos by the explosions, fires, and fighting. Already mobs were roving the streets, looting stocks of weapons, food, and clothing. Quill and Manan slipped through the streets unnoticed, just some of the many people that were skirting from this place to that, trying to avoid being entangled in anything complicated.
 
