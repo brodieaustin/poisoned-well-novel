@@ -1,20 +1,8 @@
 #The Poisoned Well#
 
-<!--notes
-water from woman poisoned the girl
-Manan leaves that water with hunter
-hunter will come after her eventually
-did water woman know about water? not sure yet
-Manan could feel betrayed by water woman
-wise man has servant named quill who will try to help girls
-girl will end up under the protection of a lord and not want to leave
-Manan has poisoned herself too
-confrontation with water women
--->
-
 ##Chapter One##
 
-The arrows, hurtled from the dark recesses of the trees, fell around them, skidding stupidly along the ice. Manan, running at full tilt, felt giddy and powerful and terrified all at the same time. The other girl, whose hand she gripped tightly, seemed less buoyed by the hail of flint, wood, and arrows. Manan gave her a rough tug just before an arrow landed right at their heels. It bounced, tipped, and veered away. We may just make it, she thought, seeing the ice lake's shore just ahead.
+The arrows, hurtled from the dark recesses of the trees, fell around them, skidding stupidly along the ice. Manan, running at full tilt, felt giddy and powerful and terrified all at the same time. The other girl, whose hand she gripped tightly, seemed less buoyed by the hail of flint, wood, and feather. Manan gave her a rough tug just before an arrow landed right at their heels. It bounced, tipped, and veered away. We may just make it, she thought, seeing the ice lake's shore just ahead.
 
 Whoever let the next arrow fly, however, had a truer aim. The arrow did not find its mark, but it grazed the other girl's calf, shredding the folds of rough spun blankets, leaving a trail of blood behind. Fortunately for Manan, the girl was so insensible that the wound did not seem to phase her. The girl just groaned and continued being pulled along the ice.
 
@@ -2015,3 +2003,256 @@ Even though she was probably falling under this curse, Manan felt close the Ethn
 Night time proved to be the worse time, not so much for her but for entire crop of slaves being sent across the flat lands. The temperatures dropped as soon as the sun fell in the sky. Huddled togthere, the slaves in the other cages could only get so warm dressed in their rags. Manan didn't concern herself with the temperature at all. The day time heat proved to be more of a challenge for her. But by night the exhausted, hungry slaves began their laments and cries. Some times they would even send up animal like howls, crowding out the real sounds of coyotes and birds and other creatures.
 
 Each day it seemed that a fresh body was being dumped by the side. Manan began to lose track of how many starved, parked, striken looking faces she saw staring up dead into the sun. The other slaves stopped weeping after the third or fourth one. In fact, Manan could hear grumbling coming from the other cages. A death meant a slow down, which meant more time spent in captivity in this wretched place. As soon as the caravan moved on, Manan would look back at the bodies. It never took long for the birds to spot the fresh meal and begin their ministrations over the dead.
+
+***
+
+Apparently, the flat lands weren't just a horrid desolate landscape. The caravan stopped at an oasis in the waste, a spring bubbled up, and green seemed to cling to the edges of it. The oasis was guarded --the slavers didn't want other travelers having access to this spot. The slaver party dismounted from their wagons and took up residence in a small house that was built in the lush growth. 
+
+The slaves weren't so lucky. The drivers parked the trains just outside the cool shady relief of the oasis. One man grew hysterical in the hot sun, hearing the laughter mingling with the dripping, slashing sounds the slavers made in a wading pool. This undone slave began banging himself against the bar of his cage, banged and banged until his face dripped in blood. Finally one of the giant guards pull the man out, broke his back, and flung him onto the hot sand for the birds.
+
+Silence fell over the camp. However desperate they might be, none of the slaves wanted to meet this same fate. Their numbers were dwindling. Manan wondered if the slavers were concerned about losing too many bodies during the trip. But she reasoned that they must pad the numbers. They certainly knew their business well enough to factor in the spoilation of their stock.
+
+Manan did her best to protect herself from the sun. She tried to fold herself inside her rags and create some shade. Her skin had gone from bright red to a deep bronzy color over the last few weeks. Now that her skin had settled its color, she noticed that the caravan leader often rode alongside her cage, casting glances at her. It wasn't clear what these glances meant until that night by the oasis when a giant guard opened her cage. Too tired to fight, Manan slid out of the cage and followed the giant.
+
+With these guards, the slavers didn't bother shackling the slaves. The giants' stride covered and two or three of her normal steps. They here huge but incredibly quick. She had seen one guard overtake a horse that bolted from the train. The horse ran at full tilt but the guard caught it and reined in the beast. The horse looked like a toy pony as the guard led it back to the group.
+
+So Manan swayed and dragged herself along as the giant kept watch over her, just a few steps behind. The sand, which cut and scraped her when it blew across her cage, felt warm and inviting under her bare feet. She wanted to dig her feet deeply into it and be a part of the warmth. Only there was no time to puase, the guard prodded her back with a stick, compelling her forward, towards the house in the oasis.
+
+The slavers traveled as a large party. The slavers brought their retinues with them, large parties to tend to them, entertain them, and pleasure them. Manan had heard evidence of the pleasuring many nights coming up from the wagon train. Sometimes even from the slave cages, though the guards quickly broke up these lapses into self-indulgence.
+
+As they entered the oasis, Manan could heard wild birds singing and what seemed to be monkey howling. Lizards darted across the foot path that led to the house. The house was built from logs, and was low and flat with a pitched roof. A porch wrapped around the house on all sides. Bodies seemed to fill up the porch. Closer to the house, talking and laughter drowned out the wild sounds of animals in the oasis.
+
+The guard led her around to the back of the house to the kitchens. A small staff who must have lived here because Manan did not recognize them, were busily preparing food and running it back and forth to the party. A few eyes travelled over her as she passed through the kitchen, through another series of doors and into a bed chamber. Those eyes were filled with lust and desire, but it was all looks and glances. The guard pointed a spill of pillows in teh middle of the room and grunted, "Wait!" He stooped back down and left her there, alone.
+
+Even though she was young, Manan knew what happened between men and women, and sometimes men and men or women and women, in bedrooms like this. Her adopted sorcesses mother had been very open with her affections and liked bawdy stories too. She had never felt it herself, but Manan knew that desire animated much of the world around her. She guessed that tonight was to be her intitation into that world.
+
+She didn't anticipate that the room would fill up with people, followed by the lead slaver himself. He was much shorter than Manan had expected. The size of his guards seemed to compensate for this own lack of stature. He was corpulent and red faced, clearly drunk and well fed tonight. His stringy black hair was pulled back tightly. The crowd parted as he walked in and the whispers and chatting stopped. The crowd, men and women alike, looked over, examined her. Such was the life of a slave, Manan thought.
+
+A woman stepped from the crowd, an elegant brown skinned woman. Manan's skin was almost as dark and bronzy as her's but not quite. The woman smelled like coriander and nutmeg. Her skin glistened and seemed moist. The very moistness of her skin made Manan feel dry and brittle by comparison. The woman circled her, nodded, then said, "You're not pretty, are you?"
+
+Was she supposed to respond? Manan chose not to. She didn't answer, and hung her head down. The woman titled her head up with a smoother finger under her chin. "Speak up girl," croacked the craggy slaver that had captured her in the woods.
+
+"No, mam, I'm not."
+
+"No, your're not pretty, but you are strong and well made. I approve."
+
+The crowd then answered, as if asked a question, "We approve."
+
+The lead slaver moved closer to her. The woman drew a knife then cut away Manan's clothing. Manan covered herself, not ready to give herself up that easily. "Move your hands child, we will all see it soon enough," the woman said.
+
+She backed away as the slaver drew closer. She flinched when he reached out to brush her cheeks with his puffy hands. The crowd laughed, but the hush came over them again. "I can't," she said.
+
+"But you will," the woman said.
+
+"Not like this. It's my first time."
+
+"Ah, well then you will relish the experience," the woman replied.
+
+"No, not with others around. What if I make a mistake. I can't bear the laughter. It won't be as good. I don't think. Please." She looked at the slaver and tried to summon a pathetic flutter in her eyes and mouth. "Please, it will be better."
+
+The slaver seemed compelled by this argument. He waved the crowd away. They didn't move until he grunted, "Go!" With that they shuffled out. Only the woman remained. "Please not her too. Please." The slaver nodded and the woman left.
+
+Alone, Manan could feel the heat just below the surface of her skin. Even as she stood there naked in the room, she could feel sweat beaded up under her arms. She changed her look from the pitiful, whimpering one to a mischevious one. She laughed then began to dart around the room. She let the slaver grab her, then slipped away again. She was must faster than him, but tempered her movements to let him catch up. 
+
+When she had him completley engaged in the thrill of pursuit, she darted for the door. Surprisingly, it gave way and she passed throough, careful to keep up the laughter. She stopped and gave the slaver a smile. He understood the game and came after her. She darted through the ktichens naked and into the cool night shade in the oasis.
+
+She veered off into the trees, brushing past the sharp blades of whatever exotic plants had been planted here. The palm trees hung low to the ground. She splashed through little rill of water, stopped and made sure that the slaver was chasing here. He huffed and puffed after her, but there he was. 
+
+With enough space between them and the house, she pretended to trip and fell to the ground. The slaver caught up with her, towered over her. She slid back into the brush and he stalked closer and closer to her. He started to unbutton his loose breeches and knelt down over her. ### She reached up for him, grabbing his hand and pulling him to her. The silent man grunted with approval and on his stiff knees, leaned into her embrace. Manan wrapped her arms tightly around him, pulled him into her, pulled then squeezed.
+
+She pressed herself into his fleshy stomach and wrapped her legs around him too. He was drunk and uncoordinated, fumbling as he tried to start with her. Manan was holding her breath, focusing her energy. It felt like her blood was boiling inside her. She was sweating wildly now. The heat rose in her and through her. She kissed him violently. And she did all of that heat inside began to pass to the slaver.
+
+His eyes went wide with surprise. His skin was started to sear. He struggled, but she grabbed that long stringy hair and held him even tighter. He squirmed and kicked, rocked from side the side. But she didn't let go. He reared back, trying to escape from her. But only ended up rolling over onto his back. Manan sprung on top of his. She cupped her hands over his mouth. No one would have heard his screams anyway. The animals in the oasis were screaming and crying out too, drowning the sounds of the slaver as his life passed away.
+
+***
+
+When his body was red and blistered and his insides cooked through, Manan heard something approaching. She thought it might be a guard, but it was only a large prowling cat. The slavers had probably set this beautiful striped cat free in the oasis to entertain and delight them. Now it was going to eat one of them. Manan slipped away slowly and quietly, watching as the cat dragged the slaver deep into the brush.
+
+Now it was time to run. She didn't know where she was going or which direction to go. She took a bearing of the moon, and decided to run in the opposite direction from it. As she stalked through the brush, she yanked at the frond of a plant and wrapped it around her shoulders. She cleared the oasis
+
+One of the slaves must have seen her because a cry went up. Then a scream. Then another cry. By now Manan had passed over a rise and come back down. She couldn't see the oasis, the wagons, the slavers, any of it. She sprinted across the flat, dry land, running as fast as she could. 
+
+She could hear more cries in the night. The whine of arrows cut through the night sky. Figures were outlined on the ridge, letting arrows fly after her. Then two of the giant guards came bounding after her. ### She had a lead on them but they would catch up eventually. She couldn't count on them stumbling or giving up. Their will seemed as immense as they did. As she ran, she wondered if she could use her heat to do anything to the giants. They never seemed fazed by heat and the sun, but maybe she could surprise them. 
+
+The whine of the arrows had stopped now that she was out of range. A spear came hurtling past her, but missed and dug down into the sand. She veered towards it and grabbed the spear as she passed it. The guards were gaining on her now. One carried a large war hammer, the other sword that seemed too small. They had been compelled out here, she thought. The guard with the hammer would be her first target. He would be slower. Then she could dispatch the other one.
+
+She decided to make her stand now rather than tire herself out more by running. She hunched down, clutching the spear in her hands. The guard with the hammer was faster and had outpaced the other one. Manan saw now that the one with the small sword had an arrow lodged in his thigh. The wound bled and obviously hurt enough to slow the giant down.
+
+She grabbed a handful of sand, clutched it tight and charged at the guard. In a glittering spray, she tossed the sand, which had grown hot in her hand. It blinded the guard and sizzled on his skin. With that guard distracted, Manan changed her plan and charged right for the wounded one. She faked left, causing the guard to swing wildly in that direction. With his right side exposed, Manan plunged the spear into his side. She turned it, then leapt back, yanking the spear form his side as he swung the sword wildly at her. 
+
+The other guard came at her with the warhammer. He leaped up and brought the warhammer crashing down. Manan dived forward, rolling under the giant. The hammer thudded into the sand. Manan leaped onto the giant back and dug her fingers into his eyes. She channeled all of her heat into his squishy eyes. Blinded and enraged, the giant whirled about, kicking up sand around him. Blinded, he veered away from them, fumbling to find his target.
+
+Manan gripped the warhammer tightly and swung it with all of her strength and caught the other guard's knee. She swung it hard enough that his knee buckled underneath him. He dropped his sword. Manan rushed to grab it. She spun around and plunged the sword upwards through his stomach. The giant reeled and fell forward, expiring before her.
+
+Covered in blood, Manan went stalking the other giant. She crept up behind him and cut him down with the sword. She scrubbed her hands clean in the sand, tossed the sword down and continued her flight across the flat lands.
+
+
+##Chapter 16##
+
+Manan walked and walked past the point of believing she could walk farther. She had gone for several days with no water, only squeezing juices from succulents that clung to the life in the flat lands. A few skinny lizards, the dead remiains of an animals that the other animals had picked over and left. This was all that sustained her in her long march to somewhere.
+
+Even though she was starved and thirsty and heading nowhere in particular, Manan dragged herself farther and farther along. She would have to run into something at some point, even if it was more slavers. Just marking some end point would be satisfaction enough.
+
+The will to move was strong and it moved her, but she couldn't have said what sustained her. Her memory was empty. Her mind was too strained to flash through pleasant scenes in her past. Besides, there were none. Where were the loving smiles or kind words that could have floated before squinting eyes and called her on. There was none of this. Just the sheer will to move. In that, she was not much different from those lizards she munched on, or the birds that circled overhead. They wanted to live, but didn't drown themselves in the particulars of that.
+
+She was so determined to press on, that she almost didn't realize that she was approaching a convoy in the distance. In fact, she nearly trudged right past them like a wound up machine, just placing one foot in front of the next with no thought as the whys and wherefors of doing so. But when she felt a blanket behind passed around her shoulders, she collapsed in the strong arms that lifted her and placed her in a wagon.
+
+The delerium that overtook her was powerful. Disoriented, she could snap awake, feel utterly confused about where she was, then slip back into a daze. It was clear that she was riding in a wagon, but it didn't seem to be a cage. There was something uniquely familiar about it. Familiar, but not entirely the same. Maybe it was the smell, or the colors she saw. Some kind of pattern that harkened back to something she knew. Not the sentiemtnal things she had passed over in the desert, but something real and immediate from the life she had staked out for herself.
+
+Manan realized how warm everything was, how warm she was. Her own skin was hot to the touch. She also noticed that was wrapped in very thick fabric much like that that Ethne had worn. These facts meant something but she fell under the spell of the wagon's ceaseless jostling. Lulled to sleep, Manan left off deciding what these things meant.
+
+Whether half awake or asleep the sounds of the wagons--the rattle and clang of wheels rolling in their housings, or tools jostling in their lashings--persisted. Beasts grunted. Their hooves scraped at the sandy landscape. Insects hopped aboard too from time to time, buzzing and crawling about. She had spent at least an hour one day watchign a spider traverse the top of the wagon.
+
+There also was a face, sometime just pieces of it. Eyes that peered out from a head wrap. A grim mouth that never smiled. The face was strong and broad, belonged to a woman, decorated with dark curling hair. The nose was broad, the lips thin. It wasn't an old face, but clearly not young either. Crows feet radiated out from the dark eyes, creasing deeply when the face was bent on doing something. The face wasn't always there. Just sometimes to give her water or food, usually some kind of sloppy cereal or smashed grains. 
+
+These were the fragments of senation that marked Manan's life for many days in that wagon.
+
+***
+
+Finally the day came when she could sit up and open her eyes without feeling like the world was crashing into her. When she did, she looked around at her surrounding and then at herself. Looking down at her body, scanning her arms and hands, she really could have been transported to Ethne's body. But as far as she could tell so far, she was still Manan.
+
+The inside of the wagon was dim and through a slit in the wagon's canvas covering, Manan could just make out the long rays of light marking the end of the day. Outside, the could hear voices and people moving about working. Manan started to crawl towards the opening, wanting to look outside directly. Her body, weak and malnourished revolted at first, but finally gave in to the idea of motion and strain.
+
+She pulled back the canvas and felt a cool nighttime breeze on her skin. She had never been so aware of each element that made up the world, of smells, of light, of feeling of the air itself. Yet all of this sensory information came to her at once. It was overwhleming, but exhilirating too. She swung her legs around and let them dangle over the back fo the wagon for a moment. Her hands clutched at the sides, hunching up her shoulders.
+
+When she pushed herself down the ground, her legs gave out underneath her. She toppled into the sand and rolled on her back. There was no real pain and she didn't feel herself to be danger. Rather than a cry, she started to laugh, and couldn't stop laughing even when the face appeared over her.
+
+The face frowned then bended closer to her to pick her up. Manan could feel the same powerful hands as before scopping under her, pulling her up, but she muttered, "No, just leave me, please." So, the hands relinquished their grip and returned her to the ground.
+
+She couldn't feel the warmth radiating from the ground exactly, besides which that warmth was quickly retreating further down as the night got colder. But the solidy of the ground comfroted her. It was nice to not be rocking and bouncing endlessly.
+
+She closed her eyes, smiling, and said, "Where are we?"
+
+"A waypoint for travelers. The beasts are being watered and fed."
+
+"Are you a slaver?"
+
+The face started to laugh as well, a deep booming laught, "A slaver? No, not a slaver."
+
+"A merchant then?"
+
+"Not a merchant either?"
+
+"A water woman?"
+
+"Yes, that is it. A water woman, as are my companions."
+
+"And I found you? I found your caracan out there?"
+
+"Somehow you did. And here you are. A strong girl, we all agree." There was a tone of hesitation in the woman's voice, but Manan was happy not to probe into it further. "Come. You should return to the wagon."
+
+The powerful hands returned, lifting her to her feet. Manan could feel them adjusting their grip. She's being very careful about how she's holding me, Manan thought. "No, please I'd like to walk first."
+
+"Will you be able to?"
+
+"I don't know. Can I try?"
+
+The woman sat her on her feet. Manan wobbled. Her dressings weren't very tight, but they clung to her enough to not trip her up. She made a few steps, then a few more after that. She kept her eyes trained on her feet and wasn't aware that a group of people were watching her. When she noticed them, Manan found herself face to face with eight woman, all of them powerful and tall like this woman and like the Water Woman had been. Some were dark and broad like the woman tending to her. Others were fairer. She saw fierce death defying looks, passive and uninterested looks, but a few smiles too.
+
+One of the women, older than the others, stepped forward and said, "We are glad to see that you are well." Manan stopped her pacing and bowed her head, bending sligltly at the knee. "Do you know who we are?"
+
+"The water women..."
+
+"Yes, some of them at least." Manan nodded. "Do you have any questions for me, for us?"
+
+"Am I your prisoner?"
+
+"No, you are not."
+
+"Am I your patient?"
+
+The older woman looked at the woman nearest her. "Yes, you are."
+
+"Am I sick?"
+
+The other woman cut in, "We do not know."
+
+"But these wrappings. I've seen them before."
+
+The older woman spoke up now, "We thought that you might have."
+
+Manan nodded again. The shape of her current situation was coming into view. She wasn't sure if she liked its contours, and there was still doubt and mystery in the specifics, but at least she knew now that whatever had made Ethne into what she was had also changed Manan. 
+
+"Where are we going?"
+
+"I can't tell you that. But know that we plan to take care of you. You are our charge now."
+
+***
+
+The caravan finally cleared the flatlands. The party stopped for a day to rest and replenish their supplies at a small market town that existed on the precipice of the waste. From there, the woman made for the coast, veering west as the did so. 
+
+Manan was never able to ride in the open, so she didnt' see much of the scenery they passed. but the land was gentle and rolling now. Sometimes they travelled through woods, but mostly in the open air. She didn't see the other women assembled in a group. No one looked in on her besides the woman who tended to her.
+
+"Whose wagon is this?"
+
+"It is mine," the woman had explained.
+
+"I've seen one like before."
+
+"Yes."
+
+"Did you know her?"
+
+"She was my sister, my blood sister. Older than me by three years."
+
+"And you were both water women?"
+
+"There's no choice in that. Our mother was, and her mother before that. When we were born being strong, healthy girls, we were set on this path."
+
+"I miss her."
+
+"I will too. We only learned of her death a short time ago, before our return journey across the waste."
+
+"How..."
+
+"In due time, Manan. There is much about a Water Woman's ways that we cannot divulge, even to you, maybe especially to you."
+
+"I don't understand..."
+
+"We know that you took up the wagon and rode in the guise of a water woman. We also know that you have taken the water and given it to others. Some of my sisters belief you should be punished for this."
+
+"Why?"
+
+"Because you took what was not yours, that only our mothers can give to us, that only we can give to others."
+
+"I had no choice."
+
+"Maybe that is so, but not everyone sees it that way."
+
+"So, what will happen to me?"
+
+"K has declared that you are under her protection. She is an elder among us and her opinion holds sway. But your protection rests on her. I saw this not to burden you with an obligation, but to make clear the situation." Manan understood how tenuous these bond of obligation were. After all, she had taken Ethne into her protection. That hadn't ended well for either of them. "Try not to think over this too much, Manan. The water woman have a saying, 'Rivers flow in one direction.' Let the past be the past. If there is a need to reckon with it, you will know and can be prepared for it."
+
+Manan had no choice but to accept this advice, which she took to mean, we'll give you ample warning if we're going to kill you. From the stern faces she had seen on the other sisters. She had no doubt that she would be cut down to preserve the water women's ways. Since there really was not pointin dwelling on this, she asked another question, "Where are we going?"
+
+"Home. To our home."
+
+"Where is that?"
+
+"I cannot say. No one is allowed to know for sure."
+
+***
+
+The sound of shouting woke Manan up. A man's voice. A woman's voice in response. Silence. The man's voice again. Then the woman's voice shouted back. This contined on for quite some time. She wondered if they were under attack, but decided that this couldn't be the case. Soon laughter and warm greetings replaced the laughter. Then she could hear horses trotting alongside them. "Val? Val? What's going on?"
+
+From up front, the water woman, whose name she learned was Val, shortened from Valeia, shouted back, "We've arrived. This is our escort." Manan later learned that the protections around the Water Women's home was elaborate. The guard, made up of the sons birthed to water women and those girls who were not destined to water women, provided the solidery that protected the land and the valuable springs. But their elaborate rituals also protected them. Any visitor approaching their home had to answer a series of questions as akind of call and response game, then was escorted into the home land.
+
+They also had to cross a wide bridge that spanned the river, which had grown into a massive waterway by now. The bridge led to a tunnel, cut into the bluffs on the other side of the river. The tunnel led to a heavily fortified clearing area before the entering the water women's home. The area they entered wasn't so much a town or city, as much as it was a production and distribution facility. Water women resupplied and began their long journeys to deliver their coveted water throughout the world from here.
+
+The water women's home were spread out. Each woman lived on somethign like an estate, but Manan wouldn't learn of this till later. For now, they rode to the largest building in this place the water woman called home. When Val came to retrive her, she explained that this was the grand hall, the center of the water women's life. Rituals were performed here, governeance happened here. It was here that the water women's council met. There also was hospital and healers here to tend to the water women and protect them from harsh conditions they endured out in the world.
+
+Val led Manan to this area of the grand hall where the healers treated their patients. "You will stay here until the healers find you fit to leave."
+
+"And then what?"
+
+"Then the council decides your fate..." Although Val said this in a matter of fact way, Manan could not help but feel that this did not bode well for her.
+
+They brought her to a room with a large pool filled with fragrant waters, steam licking its surface. There was a bed to sleep in, a window that looked out over the river, and little else. A smaller woman, much smaller than Val and her sister, greeted Manan and helped unwrap her dressings. Their coarse pattern was impressed into her skin. It felt good to be free of them. The woman was careful not to touch her directly. Manan realized that she would have to be careful about this for now on.
+
+She stepped into the bath and sat on the stone seat embedded into the side. The bath was deep and enveloped her whole body. As she entered it, the water hissed and steamed even more, but stopped once the temperature normalized. The woman explained that this bath would relax her as well as clean her and that she should sit for as long as possible.
+
+Manan was able to sit in the bath for well over an hour, dunking her head periodically to rewet her hair. All of the filth from her journey floated aroudn her then settled. She reached for a brush to scrub her skin. She scrubbed and scrubbed at it vigorously, as if trying to wash away the sediment that her decisions had deposited on her. But no amount of scrubbing and cleansing would do that. She was what she was now. 
+
+She submerged herself in the deep pool, holding her breath, letting air bubbles escape and pop at the surface. Through the dense murk of the water, she thought she coudl hear someone saying her name, a familiar voice. She crashed up through the water, brushing back the water from her face. Openeing her eyes, she saw Ethne, glowing and glistening, there in her room.
+
+
