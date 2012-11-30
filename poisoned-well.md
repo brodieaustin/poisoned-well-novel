@@ -2255,4 +2255,118 @@ Manan was able to sit in the bath for well over an hour, dunking her head period
 
 She submerged herself in the deep pool, holding her breath, letting air bubbles escape and pop at the surface. Through the dense murk of the water, she thought she coudl hear someone saying her name, a familiar voice. She crashed up through the water, brushing back the water from her face. Openeing her eyes, she saw Ethne, glowing and glistening, there in her room.
 
+##Chapter 17##
 
+"Is it really you?" Manan asked. She couldn't believe that after all this time that Ethne was here, so far from the mountains and the master. So far from the mess that she had made of her rescue. And yet here she was and now Manan felt that she was the one being rescued.
+
+"It is me. I'm here," Ethen replied.
+
+"But how?"
+
+"First, let's dry you off and dress you." Ethne treated her tenderly, like a mother might, drying her, dressing her in her wrappings. Standing across from each other, they could have really been sisters, though Manan was aware that Ethne was the pretty one. They sat on the edge of the hard simple bed, holding each other hands, letting the heat pass back and forth between them. They could touch each other now and not concern themselves with burning alive.
+
+"You have to tell me everything. What happened when I left? How did I get here?" As much as Manan wanted Ethne to rush into these answers, she felt something painful pulling her back, halting her joy at seeing the girl again. Perhaps it was that sense of failure. So far she had been able to outrun it, and not face it and study it. But here it was, her failure embodied.
+
+She had not been the one to protect Ethne. But who was? "Manan? It's okay. I will tell you. The master's men and those men who came to take me away battled through the next day. I called for you, Manan. I shouted your name again and again, but you never came. I wanted to curl up and die right there. I didn't think that I could go on by myself. I never had before, you know. I hid, but one of the solider found me... He was easy to dispose of, and so I did."
+
+"Then it got easier. To kill them. I started to feel powerful. When I found that scary shadowy man, I killed him and then I killed the master too. They all just burned up with dry leaves under my touch. When I came into that bloody hall, dragging the master's black body in there, his followers stopped fighting and the others ran. Then the followers ran too."
+
+"I lived there by myself with all of those dead bodies until I couldn't stand the smell any longer. You were gone and I knew that you weren't coming back. So, I lit the whole place on fire. It was magnifient, Manan. You could see it burning for miles around. It was like a candle that burned so bright in the sky."
+
+"I didn't know where to go, so I just started walking. I must have wandered into a farmer's field, because I woke up with a man poking me with a pitchfork. I tried to lie about being separated from my parents who were merchants, but I don't think he believed me. I couldn't make him believe me like you could have, Manan, even though I tried to remember how you do it. I begged him to let me stay in his barn, through the winter, but he refused. He would take me to his lord's house and I would have to find my parents from there."
+
+"So he left me with his lord, who really was just a boy about our age, who lived with his mother in a damp, decaying old house. He went on endlessly about how his father had been a great lord until a usurper betrayed him. It didn't matter. I only half listened. I said that I was looking for my parents and just needed a place to stay. The let me sleep in the house's old kitchens, which weren't used anymore since that little lord was throwing grand parties."
+
+"I think he fell in love with me, Manan. I could have married him, but I accidentally burned him when he tried to kiss me." Ethne seemed to become shy and a little elusive on this point, but Manan was not going to press. "He ran to tell his mother that I had tried to harm him. So, their house keeper chained me in the barn like an animal."
+
+"They were regularly visited by a water woman, who was stopping to deliver water to them. This woman found me chained in the barn. She was very secretive about it, but told me that she would free me. When she left, she did free me. She tried to administer waters to me, made me drink tonics and administered salves, but nothing could stop the burning. It got better, I guess, but it wasn't going to go away. She seemed set on making me better though and I wondered why."
+
+"I started to understand a little bit when we came across two travellers on the road, nearly frozen to death. At least one of them was, a man and his daughter. Can you guess who they were, Manan?"
+
+Manan could, "The hunter and his daughter"
+
+Ethen nodded. "She was not feeling well when he returned. Her skin was too hot to the touch. She seemed like she was going to burn up the bed. It wasn't bad, but getting worse. He had tried bringing her back to the master's, but saw the ruins of it. I don't know if he tracked me or we met by accident. But there we were, staring at each other. He was so full of hate and despair, Manan. I felt that I was the cause of it, somehow, that by being near her I had caused this."
+
+"But she was probably the only thing keeping them alive and besides it wasn't you, not really."
+
+"I know that now..."
+
+"It was the water," another voice said, a man's voice. The hunter came into the room. He seemed thin and harrassed, like a shadow of his former self. He stood before them, tense, as if ready to spring into some kind of action. Manan could not tell what action that might be. She  wasn't sure if he was going to fall into her arms or kill her. 
+
+"The water," she repeated. 
+
+"The water," Ethne repeated too. "From a poisoned well, I learned later. The water woman began hinting that this was what might have caused it. They had been ordered to keep their eyes open and alert."
+
+"For what?" Manan asked.
+
+"For a traitor..." the man added.
+
+"A traitor? I don't understand."
+
+"The water woman, our water woman," Ethen said. "She had been banished from the guild. She was no longer a part of them."
+
+"I don't fully understand myself," the hunter said. "But it seems she maintained a private well, but it was tainted, poisoned. Certain customers paid good money for this water because of its unusual effects."
+
+Manan tried to process this information, but couldn't. The water woman had saved them and protected them. And her beast. It was so pure and noble. How could it have been a part of this? "None of this makes sense," Manan said. "I don't understand."
+
+"I don't think the Water Women do either," the hunter said. "Not that they would admit to it. But they claim to want to care of us now, of you and Ethen and my daughter."
+
+"Is she okay?" Manan asked.
+
+"She is well enough."
+
+"If I had known, I would never..."
+
+"It is okay, Manan. I realize now that you were trying to protect yourself and Ethne."
+
+"I wanted to help your daughter. I really did. I wanted to help Ethne too, but somehow nothing turned out right."
+
+"But we're here now, Manan." Ethne said. She seemed much more comfortable with this knowledge than Manan felt at this moment. But she has had days to think over it, Manan thought. But she also wondered if she would ever reconcile herself with it. After all, she had taken up the Water Woman's mantle, and thus felt as much a perpetrator as a victim.
+
+No one could intercede and tell her that this wasn't the case. Even the hunter's calm, self possessed assurances, could not dispell the nagging, gnawing worry that Manan felt. But maybe it was the effects of her condition too, of the heat in her body, that seemed to agitate her even now, in the midst of this peaceful and harmonious scene.
+
+###
+
+Manan spent her days with Ethne and the hunter's daughter. The attendants in the hospital visited them frequently, offering a slew of potions, tonics, and salves. Every few days a nother person or two would appear, each of them suffering from similar complaints, in varying degrees of severity. The Water Women seemed to be forming a village of sick people, thought Manan.
+
+In fact they were. The Water Women's council had resolved to care for those affected by their wayward sister. They felt the need to close the wound that broke the sanctity of their codes and oath. Manan, using what wordly knowledge she had, also reasoned that the Water Women needed these people to disappear to not affect their trade. Without customers for their water, the Water Women would cease to exist.
+
+The council also resolved to seal the poisoned well. There was to be a ceremony the following day. A train of beasts and wagons would pitch wagon after wagon of dirt to close up the well and ensure that the Water Women did not peddle it again.
+
+Before they did, though. Manan felt compelled to see the well. She had gained enough strength to go walking everyday. Though the women and the guard kept an eye on their patients, they were not prisoners and were free to come and go as they pleased as long as they did not interfere with the Water Women's operations.
+
+So that evening, Manan walked and headed for the poisoned well. It was on the edge of the Water Woman's property, which had been abondoned after her explusion from the order. No one was permitted to live there again. Eventually the house would be torn down.
+
+She found the well easily enough, it sat on a rise, outlined against the fading light in the sky. Roughly placed stones ringed a hole in the ground. The rigging that had drawn water up had toppled other. Manan could not tell if someone had destroyed it, or if it had fallen on its own. She sat on the well's edge, staring down into the long, dark shaft. 
+
+She startled when she heard a voice say, "It's a sad story."
+
+"What is?" Manan asked Val.
+
+"The story of this well and my sister. Would you like to hear it?"
+
+"Yes, I would."
+
+"As Water Women we live by certain rules. My sister always chaffed at those rules. She met a man out there in the world and bedded him only to learn that she was with child. This is forbidden by our traditions, the bloodlines are carefully maintained. Even the most able daughter will not become a Water Woman if she is not deemed fit. Such is the life we live."
+
+"But my sister refused to give up the baby. She had a daughter, and kept her daughter hidden in a faraway place. I had my suspicions, but chose not to ask. Perhaps that was wrong of me. But it is too late to regret these small missteps after the path has been taken. My sister's daughter in turn bedded a man and was with child. She begged my sister to come home, to have her baby in the comfort of this place. But my sister refused."
+
+"Her daugther was just as stubborn as her and sneaked onto our land and into her mother's house. When she was discovered, her daughter left in despair and disappeared. I believed she threw herself in this well."
+
+"And poisoned the water..." Manan added.
+
+"Yes. But she left the baby behind. My sister could not keep the child so she smuggled it out during her next journey. The water she carried kept the child peaceful so she gave it more and more. In a distant mountain town, she offered the child to a lord and lady. This lady was barren and happy to have a child. But when she learned that she was to give birth to her own child, a son, the baby girl was cast off. Only by then these people realized that this child was different, that she could produce incredibel amounts of heat. I still don't understand how it came to pass that she became a heat source for the town, but to someone's way of thinking, this was a kind of mercy."
+
+"And that's how I found Ethne," Manan said.
+
+"Abandoned, forgotten, poisoned by the mistakes that her mother and mother's mother had made. A victim. Until you came along, Manan. You tried to help this creature, to give her a new start, to make a life for her."
+
+"And failed to do that."
+
+"I disagree Manan. I do not think that you failed. Ethne is here now. She is home with us and she is brave and beautiful. I feel lucky to have met her."
+
+"But she can't be a Water Woman and she'll never be well."
+
+"No, she can't. But she has you to protect her and care for her. She should count herself lucky."
+
+Val left her sitting at the edge of the well. It would be filled tomorrow, and the stone toppled, its existence erased. Yet is effects could not be undone. not that easily. As she went to return to this hospital, Manan looked back at the poisoned well. She tried to fix an image of it in her mind, but she wondered how long it would be before its place and shape faded from her memory, replaced by other images of a life she had yet to live.
