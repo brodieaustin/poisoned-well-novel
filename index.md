@@ -2014,8 +2014,6 @@ Each day it seemed that a fresh body was being dumped by the side. Manan began t
 
 ***
 
-<a id="update"></a>
-
 Apparently, the flat lands weren't just a horrid desolate landscape. The caravan stopped at an oasis in the waste, a spring bubbled up, and green seemed to cling to the edges of it. The oasis was guarded --the slavers didn't want other travelers having access to this spot. The slaver party dismounted from their wagons and took up residence in a small house that was built in the lush growth. 
 
 The slaves weren't so lucky. The drivers parked the trains just outside the cool shady relief of the oasis. One man grew hysterical in the hot sun, hearing the laughter mingling with the dripping, slashing sounds the slavers made in a wading pool. This undone slave began banging himself against the bar of his cage, banged and banged until his face dripped in blood. Finally one of the giant guards pull the man out, broke his back, and flung him onto the hot sand for the birds.
@@ -2264,6 +2262,8 @@ She stepped into the bath and sat on the stone seat embedded into the side. The 
 Manan was able to sit in the bath for well over an hour, dunking her head periodically to wet her hair. All of the filth from her journey floated around her then settled. She reached for a brush to scrub her skin. She scrubbed and scrubbed at it vigorously, as if trying to wash away the sediment that her decisions had deposited on her. But no amount of scrubbing and cleansing would do that. She was what she was now. 
 
 She submerged herself in the deep pool, holding her breath, letting air bubbles escape and pop at the surface. Through the dense murk of the water, she thought she could hear someone saying her name, a familiar voice. She crashed up through the water, brushing back the water from her face. Opening her eyes, she saw Ethne, glowing and glistening, there in her room.
+
+<a id="update"></a>
 
 ##Chapter 17##
 
