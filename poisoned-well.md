@@ -26,7 +26,7 @@ The pyrotechnics seemed to stanch the flood of arrows too. Without the constant 
 
 ***
 
-Running on ice was not easy, but crashing through the dead undergrowth of the forest with a limp loose girl was not any better. The girl kept stumbling and falling. When she tried to pick herself up, the branches would singe and the rocks go black. This wo not do, Manan though, realizing that they were leaving an obvious trail behind them. 
+Running on ice was not easy, but crashing through the dead undergrowth of the forest with a limp loose girl was not any better. The girl kept stumbling and falling. When she tried to pick herself up, the branches would singe and the rocks go black. This will not do, Manan though, realizing that they were leaving an obvious trail behind them. 
 
 They had lost the element of surprise entirely, though, so darting off into the night was not really much of an option anyway. Manan had underestimated how much sleeping powder it would take to make the large potbellied man who watched over the girl at night stay asleep. The cruel thing was not that he awoke, rather that his half-asleep tossings and moanings woke the boy who was his attendant, a word which the townspeople used in place of the word "slave."
 
@@ -82,7 +82,7 @@ It was true, the poor girl probably had not slept, really slept in months, if no
 
 She jumped down from the wagon and her stiff legs caught her and buoyed her up. They loosened quickly enough as she paced around the wagon. Now in the daylight, she could feel the cold mountain air seeping through her clothes. Last night had been excitement and momentum. No time for cold when you were capering. 
 
-"Dont' wander off," the woman warned her. "And be careful about your tracks." 
+"Don't wander off," the woman warned her. "And be careful about your tracks." 
 
 The road here, really the ruts that made up the road now, was really just layers and layers of compacted snow. If it had not been for the surefooted beast and the studded wagon wheels, they would not have made it far at all. Manan's feet even slipped out from under her several times. She caught her balance quickly, As I always do, she though, but the inner bravado was all acting, really. On the compacted road, her route around the wagon would leave little to no trail, certainly nothing that the town hunters could pick up. They were skilled at tracking antlered beasts, but not tracking men for leagues and leagues.
 
@@ -168,7 +168,7 @@ Manan set to cutting at the spot where the arrow pierced the woman's side. Blood
 
 "I do not know. Where are we?" The girl looked around.
 
-"Come with me, let's get out of this wagon." Manan reached out for her and girl flinched away. "It's okay. I wo not hurt you."
+"Come with me, let's get out of this wagon." Manan reached out for her and girl flinched away. "It's okay. I will not hurt you."
 
 "But I might hurt you."
 
@@ -301,7 +301,7 @@ The girl was hunched up; her arms wrapped tightly around her legs. She rolled ba
 
 "And they wanted to eat it!" the girl interjected.
 
-"Yes, they did, but first they had to cross the old bridge. The first rabbit was the bold one. It did not think much of the other rabbits and their study of the bridge. 'If you want to cross, you just cross' said this one. So it loped out on the bridge. The bridge was very old and shaked from side to side. Soon a gust of wind came by and knocked the rabbit off in the river below. It drifted away in the river feeling very foolish that it was all wet."
+"Yes, they did, but first they had to cross the old bridge. The first rabbit was the bold one. It did not think much of the other rabbits and their study of the bridge. 'If you want to cross, you just cross' said this one. So it loped out on the bridge. The bridge was very old and shook from side to side. Soon a gust of wind came by and knocked the rabbit off in the river below. It drifted away in the river feeling very foolish that it was all wet."
 
 "It should not have done that!" the girl said.
 
@@ -393,7 +393,7 @@ Then this man named Cotton saw Manan crouched in the snow and an violent, hard, 
 
 They were not heading back to the cave. She's trying to lead him away from the girl, Manan realized. The man was slow, but they were not much faster, together at least. Manan's feet kept slipping out from under her. She looked back and saw the man slipping too, but there he was nevertheless.
 
-Suddenly the woman stopped and grabbed a heavy stone, hurling it at the man. Snow scattered wildly in the air. It must have come quickly at him, because he did not dodge it. The stone struck his leg, leaving him curled over in the pain. This gave them a chance to gain the advantage. "He'll keep coming at us," the woman said, when the finally gained higher ground overlooking the area they had just covered. "He's sworn to. He wo not return until he has the girl."
+Suddenly the woman stopped and grabbed a heavy stone, hurling it at the man. Snow scattered wildly in the air. It must have come quickly at him, because he did not dodge it. The stone struck his leg, leaving him curled over in the pain. This gave them a chance to gain the advantage. "He'll keep coming at us," the woman said, when the finally gained higher ground overlooking the area they had just covered. "He's sworn to. He will not return until he has the girl."
 
 "Or he is dead," Manan added. The woman nodded in agreement.
 
@@ -529,7 +529,7 @@ In her new role as Water Woman, Manan realized that she had to accept this offer
 
 "My sister," she replied, raising her voice, hoping that the girl would hear her. "She has taken ill and must be confined."
 
-The man's grim look suggested that he was accustomed to illness and maybe even heartbreak. "She wo not be alone then. My youngest has taken ill too." It went unspoken between them that he expected Manan to attend to the child with some of the magic waters she carried in her wagon.
+The man's grim look suggested that he was accustomed to illness and maybe even heartbreak. "She will not be alone then. My youngest has taken ill too." It went unspoken between them that he expected Manan to attend to the child with some of the magic waters she carried in her wagon.
 
 ***
 
@@ -764,7 +764,7 @@ Fortunately in the close environment of the cottage, the family did not notice t
 
 In the moment, though, she had to find someway to break through Ethne's hardened, sullen expression. She dropped her eyes and curled her mouth in a frown. What magic potion could Manan use to compel the girl to do what she wanted? She decided that like most negotiations, she would have to give to get. But give what?
 
-"You wo not have to hide in the wagon..."
+"You will not have to hide in the wagon..."
 
 "I do not care and I'm not going unless I can walk and run..."
 
@@ -1044,7 +1044,7 @@ The man pushed himself back to standing with his cane. He seemed pleased, even i
 
 Manan sat still, trying not to betray any response. Ride out the accusation, she thought. She had done this before successfully. If you seemed convinced of the lie, so will your accuser, eventually. But this Quill, he was beginning to unsettled her. He seemed to see through her. But what was he? Just some servant of some master, who may or may not actually exist.
 
-"Very good. I'm impressed. Do not worry, I wo not tell anyone. Your secret is safe with me. And if you keep up with this level of performance, very few people will find out." Manan did not even nod in response. "Your friend will be returning soon, I would guess. I do hope that we can help her."
+"Very good. I'm impressed. Do not worry, I will not tell anyone. Your secret is safe with me. And if you keep up with this level of performance, very few people will find out." Manan did not even nod in response. "Your friend will be returning soon, I would guess. I do hope that we can help her."
 
 As he left the room, Manan wonder what he meant by his parting words. They seemed just as staged and performed as her stoic acceptance of his accusation that she was no Water Woman. Of course, she was not, but the stakes should be clear for her and why she felt it necessary to don this role. But what of this weird man? What role was he playing? And why?
 
@@ -1254,7 +1254,7 @@ As they pulled away from the tower, a small explosion went off on the opposite s
 
 "I do not want to. It's just pictures."
 
-"You have travelled this world. Have you ever seen a sign with a bed, or a plank with an arrow painted on it."
+"You have traveled this world. Have you ever seen a sign with a bed, or a plank with an arrow painted on it."
 
 "Yes, of course."
 
@@ -1286,59 +1286,59 @@ Manan rubbed her eye roughly and sat up. The cart swayed back and forth. They we
 
 "Go on, go on. It is a very interesting story." In their short time together, Quill's mood had changed again. He did not seem wry and bitter now. And he was not being cold and stoic. He seemed calm and soothing. Manan felt she should continue to share her dream with him.
 
-"After the woman, someone else appeared in the dream. A traveller was walking along the river bank and stopped when he saw the girl. A little dog followed him and was yipping and yapping. He was covered in dust and his clothes were full of holes and rips, but the girl did not notice. He walked with a long nobby walking stick."
+"After the woman, someone else appeared in the dream. A traveler was walking along the river bank and stopped when he saw the girl. A little dog followed him and was yipping and yapping. He was covered in dust and his clothes were full of holes and rips, but the girl did not notice. He walked with a long knobby walking stick."
 
-"The traveller bowed and smiled and gave the girl a beautiful red flower. It smelled nice. I'm not sure how I know, but I could tell from the look on her face. She was blushing. She seemed to be in love with the traveller. He wanted her to follow him and she didn. She was going to leave the fishing pole, but something was tugging at the line. They realized it too and the traveller drew in the line. It was not fish she'd caught though. There was baby hooked to the line."
+"The traveler bowed and smiled and gave the girl a beautiful red flower. It smelled nice. I'm not sure how I know, but I could tell from the look on her face. She was blushing. She seemed to be in love with the traveler. He wanted her to follow him and she didn. She was going to leave the fishing pole, but something was tugging at the line. They realized it too and the traveler drew in the line. It was not fish she'd caught though. There was baby hooked to the line."
 
-"She drew it to her arms and it started to cry. She cooed and sang to it. She loved the baby too. It fed from her and fell asleep. The traveller swaddled the baby and tied it to his walking stick. He propped the stick on his shoulder and they left the river."
+"She drew it to her arms and it started to cry. She cooed and sang to it. She loved the baby too. It fed from her and fell asleep. The traveler swaddled the baby and tied it to his walking stick. He propped the stick on his shoulder and they left the river."
 
-"Then I'm not sure what happened. They had stopped at a well. The girl was drawing up water and they drank the cool fresh water. The traveller was holding the baby in his arms. But the baby cried and cried in his arms. It's little arms and legs were waving around. The girl reached for the baby, but the traveller pulled the baby away. He did not want her to have it. He was going to keep it."
+"Then I'm not sure what happened. They had stopped at a well. The girl was drawing up water and they drank the cool fresh water. The traveler was holding the baby in his arms. But the baby cried and cried in his arms. It's little arms and legs were waving around. The girl reached for the baby, but the traveler pulled the baby away. He did not want her to have it. He was going to keep it."
 
-"Only he did not leave with it. He was holding it over the well. The little baby was just dangling there over that well crying. The girl leaped at the traveller. She was crying too. But she was mute and could not scream. But dhe tried to scratch his eyes out. The traveller let go of the baby..."
+"Only he did not leave with it. He was holding it over the well. The little baby was just dangling there over that well crying. The girl leaped at the traveler. She was crying too. But she was mute and could not scream. But she tried to scratch his eyes out. The traveler let go of the baby..."
 
 ***
 
-By the next day, they left the back of the wagon and rode in front. Manan took the reins, comforted by seeing the beast once again. The snows that covered the mountains became random patches of white as they travelled further and further away from them. Manan began to shed her layers of clothing too, thought the winds that blew from the flatlands were still cold. But she did not feel the bone shivering cold that had set in during her time in the cell, and that was a relief.
+By the next day, they left the back of the wagon and rode in front. Manan took the reins, comforted by seeing the beast once again. The snows that covered the mountains became random patches of white as they traveled further and further away from them. Manan began to shed her layers of clothing too, thought the winds that blew from the flatlands were still cold. But she did not feel the bone shivering cold that had set in during her time in the cell, and that was a relief.
 
-Quill peppered her with questions and had an uncanny ability to pull information from her. She told him about being an orphan who had been taken to a monastic order's home far to the west. She had grown up with a handful of other abdandoned children, made the work to the bone for the order. These particular religious adepts were chemists and apotthecaries. The young Manan frequently found herself caned for stealing herbs and tonics from the order.
+Quill peppered her with questions and had an uncanny ability to pull information from her. She told him about being an orphan who had been taken to a monastic order's home far to the west. She had grown up with a handful of other abandoned children, made the work to the bone for the order. These particular religious adepts were chemists and apothecaries. The young Manan frequently found herself caned for stealing herbs and tonics from the order.
 
-A baby faced brother with red cheeks had taken an unnatural ineterest in her when she was older. Again she found herself to be the object of more punishment, as the Father Protector, the head of the order, tried to discipline his disciple's vices out of the young girl. Rather than channel her punishment into the young brother's reformation, she ran away and lived her life on the road ever since.
+A baby faced brother with red cheeks had taken an unnatural interest in her when she was older. Again she found herself to be the object of more punishment, as the Father Protector, the head of the order, tried to discipline his disciple's vices out of the young girl. Rather than channel her punishment into the young brother's reformation, she ran away and lived her life on the road ever since.
 
-In those early years, the thought of finding the parents who abandoned her propelled her across many miles, through many towns and villages. But when she took up with the troupe of acrobats and conartists. One of the company, a woman who called herself a sorcesses and magician took the young Manan under her wing. As both mother and mentor, the woman enhanced Manan's knowledge of potions and spells, really just theatrical tricks, but the young girl played the part well.
+In those early years, the thought of finding the parents who abandoned her propelled her across many miles, through many towns and villages. But when she took up with the troupe of acrobats and con artists. One of the company, a woman who called herself a sorceress and magician took the young Manan under her wing. As both mother and mentor, the woman enhanced Manan's knowledge of potions and spells, really just theatrical tricks, but the young girl played the part well.
 
-She already had a penchant for make believe. For so many years with the brothers, it had not been her performing those menial tasks and enduring the harsh discipline metted out by those brothers. No, it had been a warrorior, a clown, a mute, a princess, a fierce wildcat, and so on. Of course, none of the brothers knew that they had living amongst them a powerful diety who could summon rains with muttering nonsense words, but such it had been, and those brothers had died countless deaths by flood, fire, claw, and sword.
+She already had a penchant for make believe. For so many years with the brothers, it had not been her performing those menial tasks and enduring the harsh discipline meted out by those brothers. No, it had been a warrior, a clown, a mute, a princess, a fierce wildcat, and so on. Of course, none of the brothers knew that they had living amongst them a powerful deity who could summon rains with muttering nonsense words, but such it had been, and those brothers had died countless deaths by flood, fire, claw, and sword.
 
-The magicain had a husband, her "natural husband," she always called him, but Manan never knew what this meant. The other troupe would smirk when she said this, so Manan added this to her repetoire. When a crowd was gathered around her in some alley way of a town, people pressed close together to see their money disappear before their eyes, the little performer always got a good laught when she called a strapping young man standing next to some randy, toothless lady her "natural husband."
+The magician had a husband, her "natural husband," she always called him, but Manan never knew what this meant. The other troupe would smirk when she said this, so Manan added this to her repertoire. When a crowd was gathered around her in some alley way of a town, people pressed close together to see their money disappear before their eyes, the little performer always got a good laugh when she called a strapping young man standing next to some randy, toothless lady her "natural husband."
 
-This "natural husband" was a brutal man who faught endlessly with his magiciann "wife." They knocked each other about. Fortunately, the magician knew countless salves to calm fierce swells from fighting. But he was good with blades, particualrly daggers and knives. When the pair was not tearing into each other--either fighting or making love--he would teach Manan had to handle baldes. Soon, she added knife throwing to her repetoire, and only nearly killed a young boy once.
+This "natural husband" was a brutal man who fought endlessly with his magician "wife." They knocked each other about. Fortunately, the magician knew countless salves to calm fierce swells from fighting. But he was good with blades, particularly daggers and knives. When the pair was not tearing into each other--either fighting or making love--he would teach Manan had to handle blades. Soon, she added knife throwing to her repertoire, and only nearly killed a young boy once.
 
-But she grew tired of the group she travelled with, and left them in one of the majestic cities that looms in the south. It was there that she learned of a noble woman, bereft after her daughter had disappeared many years before. Manan discovered that the daughter was about her age. When she was mistaken for the daughter in a market, she hatched a plan.
+But she grew tired of the group she traveled with, and left them in one of the majestic cities that looms in the south. It was there that she learned of a noble woman, bereft after her daughter had disappeared many years before. Manan discovered that the daughter was about her age. When she was mistaken for the daughter in a market, she hatched a plan.
 
-It only took an unscrupulous servant in the noble woman's house to learn all about the daughter's life, or at least enough to ### learn enough deatils to inflect her portrait with realism. She appeared in the houses's kitchens one night, in the midst of a fierce rain storm, claiming that she had been washed ashore in a shipwreck. She did not know who she was, but the noble lady embraced her in tears.
+It only took an unscrupulous servant in the noble woman's house to learn all about the daughter's life, or at least enough to ### learn enough details to inflect her portrait with realism. She appeared in the houses's kitchens one night, in the midst of a fierce rain storm, claiming that she had been washed ashore in a shipwreck. She did not know who she was, but the noble lady embraced her in tears.
 
 Her intentions to plunder the household gave way as a newly discovered sentimental side emerged in her personality. She found herself enjoying the time she spent in the noble woman's room, learning to stitch or to read. She found that the lady-like habits became second nature to her. She started to look down upon the servants in the house, thinking herself to be a truly noble little lady.
 
-Playing at being a lady was fine until she struck the same servant who had fed her details about the daughter's life. Within weeks of the affront, the servant hatched a scheme to expose Manan. Things began to disappear from the noble woman's chambers. She accepted this at first. Her servants were always lifting a little piece fo finery from them. She indguled them in a haughty and removed way. After all, she explained to Mananm, the low born could not control their base impulses.
+Playing at being a lady was fine until she struck the same servant who had fed her details about the daughter's life. Within weeks of the affront, the servant hatched a scheme to expose Manan. Things began to disappear from the noble woman's chambers. She accepted this at first. Her servants were always lifting a little piece of finery from them. She indulged them in a haughty and removed way. After all, she explained to Manan, the low born could not control their base impulses.
 
 Manan did not realize that the slighted servant was dropping these stolen items in her room. This alone would not have implicated her. The servant, who had attended her as a lady's maid until their conflict, knew that Manan had a birthmark on her inner thigh. One day, the lady cried out from her chambers. An ancient family heirloom, a brooch of gold and gemstone fashioned in the shape of a winged bird, had disappeared. This theft went too far, and the household staff was made to look high and low for the lost item.
 
 The brooch, of course, was found just outside Manan's room, wrapped carefully in velvet and stowed behind a stone. One of the lady's footmen noticed that the stone was loose, and pulled it aside to discover the lost treasure. Events happened quickly. The staff lined up, confronted by the lady and her head of household, a puffing man who almost held himself to be a lord.
 
-Manan's accomplice squirmed and look guilty as she stood there with the others. "She's the one, of course!" she had thought at the time, little realizing what was about to happen. But the servant was only trying to draw attention to herself. As soon as attention was drawn to her, she broke down, sobbing, falling into another young maid's arms. She told a broken up story about a terrible imposter in their midst who had tricked her into silence, but this was too much, and she never wanted to see her lady hurt like this, and she was innocent and could not bear to keep the secret any longer, even if it meant being whipped by the imposter, and said imposter had threatened so many times.
+Manan's accomplice squirmed and look guilty as she stood there with the others. "She's the one, of course!" she had thought at the time, little realizing what was about to happen. But the servant was only trying to draw attention to herself. As soon as attention was drawn to her, she broke down, sobbing, falling into another young maid's arms. She told a broken up story about a terrible impostor in their midst who had tricked her into silence, but this was too much, and she never wanted to see her lady hurt like this, and she was innocent and could not bear to keep the secret any longer, even if it meant being whipped by the impostor, and said impostor had threatened so many times.
 
-"And who is this imposter?" her ladyship asked. A quivering, shaking hand pointed at Manan. And the servant told about the birthmark on Manan's leg and how her ladyship's daughter had not such a mark. "I thought it was an evil looking mark when I seen it, and I was right. I was wrong to lie, your ladyship, terribly wrong, and please forgive me." Or something like that.
+"And who is this impostor?" her ladyship asked. A quivering, shaking hand pointed at Manan. And the servant told about the birthmark on Manan's leg and how her ladyship's daughter had not such a mark. "I thought it was an evil looking mark when I seen it, and I was right. I was wrong to lie, your ladyship, terribly wrong, and please forgive me." Or something like that.
 
 The footmen handled Manan roughly, stripped her to her underclothes, and there, of course, was the mark. The mark and the stolen things. The servant had played them all masterfully. Fortunately, at that time, Manan kept a paper packet of powder in her underclothes, a power that when inhaled could make a man double over in a coughing fit. She curled to the ground, now performing her own act of contrition, but really she emptied the packet into her hand, spun around and blew it into the men's faces. 
 
-One by one, they staggered and fell, coughing and wretching. One particualrly sensitive boy vomitted. As she stepped over him, Manan felt some remorse about this. She had liked the boy well enought. But he had seemed particularly eager when tearing her clothes from her with the others. 
+One by one, they staggered and fell, coughing and retching. One particularly sensitive boy vomited. As she stepped over him, Manan felt some remorse about this. She had liked the boy well enough. But he had seemed particularly eager when tearing her clothes from her with the others. 
 
-From there, Manan travelled with a caravan of merchants, then a slave runner, then travelled by boat to the north. She trekked through the mountains from town to town and came to Ethne's town, only it was just another walled place nestled in a valley, drenched in snow. 
+From there, Manan traveled with a caravan of merchants, then a slave runner, then traveled by boat to the north. She trekked through the mountains from town to town and came to Ethne's town, only it was just another walled place nestled in a valley, drenched in snow. 
 
-"And then I had the foolish idea that I woudl rescue her. And here I am now. I think I was trying to get on a better path, to right myself somehow. But I'm not anything in this world, and nothings do not get a path, it seems."
+"And then I had the foolish idea that I would rescue her. And here I am now. I think I was trying to get on a better path, to right myself somehow. But I'm not anything in this world, and nothings do not get a path, it seems."
 
-"Sometimes somethings do not have a path either," Quill replied. "Your lady in the story, she accepted her fate, did not she, and was duped into believing a stranger was her daughter. The people of that town, where you rescued Ethne, they accpeted that this little girl would warm them in the cold winter months, never stopping to think what the price of doing so might be. There was no path there, just event and circumstances."
+"Sometimes somethings do not have a path either," Quill replied. "Your lady in the story, she accepted her fate, did not she, and was duped into believing a stranger was her daughter. The people of that town, where you rescued Ethne, they accepted that this little girl would warm them in the cold winter months, never stopping to think what the price of doing so might be. There was no path there, just event and circumstances."
 
-Manan looked Quill, puzzled, "I do not understand you. You served that monster and here you're talking about people doing evil. You did evil itentionally."
+Manan looked Quill, puzzled, "I do not understand you. You served that monster and here you're talking about people doing evil. You did evil intentionally."
 
 Quill's eyes narrowed, regarding her, "Perhaps so, but I am here now. And so are you, thanks to me."
 
@@ -1348,7 +1348,7 @@ Quill's eyes narrowed, regarding her, "Perhaps so, but I am here now. And so are
 
 "Why?" Manan asked.
 
-"To put it between us and whomever migth be following us. A word of warning, Manan, do not ever let your guard down. Not now. You're little run in with the servant and lady was one thing. But you have crossed many lines that separete the protected from the unprotected. There is a ferry near here. I just do not remember where."
+"To put it between us and whomever might be following us. A word of warning, Manan, do not ever let your guard down. Not now. You're little run in with the servant and lady was one thing. But you have crossed many lines that separate the protected from the unprotected. There is a ferry near here. I just do not remember where."
 
 It took another half day before they reached the crossing, only there was no ferryman to be found. The little stub of dock hung over the water stupidly, serving no purpose without a boat. "Maybe he left for the winter?" she asked.
 
@@ -1356,7 +1356,7 @@ It took another half day before they reached the crossing, only there was no fer
 
 "Why not find another crossing?"
 
-"Because there wo not be another one for several more days, and I'm eager to cross here."
+"Because there will not be another one for several more days, and I'm eager to cross here."
 
 "You know this land well."
 
@@ -1364,7 +1364,7 @@ It took another half day before they reached the crossing, only there was no fer
 
 So, they made camp under a stand of trees near the river bank. Manan discovered a shed nearby that must have served as the ferryman's house, though not a very sound one. Manan wandered in circles for some time, starting at the ground, picking up twigs and broken limbs for fire. From a distance, she could see Quill, laying out a bed roll to sleep on. She paused by a tree, almost hiding behind it, watching him.
 
-She could swear that he looked different, but she could not tell why. Then she realized what it was. He was walking upright, completely upright. No cane to support him. She could not be entirely sure form this distance, but it seemed clear to him. But as soon as the revelation occured to her, he feel back to his stooped walk.
+She could swear that he looked different, but she could not tell why. Then she realized what it was. He was walking upright, completely upright. No cane to support him. She could not be entirely sure form this distance, but it seemed clear to him. But as soon as the revelation occurred to her, he feel back to his stooped walk.
 
 When she returned to their camp, Quill seemed to be so thoroughly...Quill, that Manan did not believe what she saw, supposed she must have been imagining what she saw. And what difference would it make at this point, anyway. They were in flight from the master and his men, or from the other men that had attacked them. Quill was just as likely to be tracked down by the master's men for breaking some uttered oath, as she was by the people who sought revenge or justice for her theft.
 
@@ -1374,7 +1374,7 @@ So they both slept, though Manan did not sleep as soundly as he seemed to. She w
 
 ***
 
-Quill's intutition about the ferryman proved to be true. The next morning they woke to a loud voice shouting out, "Hullo! You wanting to cross then?" They gathered their things quickly, broke camp, and rode down the river's edge. The ferryman met them as they approached. He looked them both up and down, spit a wobbling glob of spit on the ground, and made a sucking sound in his nose. "Cold took hold of me a few weeks past. Ca not shake the snot from me nose. The boy over there almost shivered to death with a fever, but he got over it."
+Quill's intuition about the ferryman proved to be true. The next morning they woke to a loud voice shouting out, "Hullo! You wanting to cross then?" They gathered their things quickly, broke camp, and rode down the river's edge. The ferryman met them as they approached. He looked them both up and down, spit a wobbling glob of spit on the ground, and made a sucking sound in his nose. "Cold took hold of me a few weeks past. Ca not shake the snot from me nose. The boy over there almost shivered to death with a fever, but he got over it."
 
 He looked as if he was trying to peer through the wagon, probably wondering if it contained something to clear his nose. Before Quill could start negotiating terms of their crossing, Manan spoke up, "I have a tonic for that problem. I can mix some for you if you give us passage."
 
@@ -1382,7 +1382,7 @@ He looked as if he was trying to peer through the wagon, probably wondering if i
 
 "And how far would two bottles get us?" Quill asked.
 
-"To the other side, but I know traveller's minds. It's never just back and forth, is it. It's that and then some. 'Well why not take me to the portage' they say. Or, 'But Castle Wray is not much further.' You know how it is."
+"To the other side, but I know traveler's minds. It's never just back and forth, is it. It's that and then some. 'Well why not take me to the portage' they say. Or, 'But Castle Wray is not much further.' You know how it is."
 
 "Yes, we do. And how to get us within two days of Corton."
 
@@ -1394,15 +1394,15 @@ He looked as if he was trying to peer through the wagon, probably wondering if i
 
 "Three bottles. I only use the rarest of herbs. And this brew has a special mineral from the Low Lakes. It soothes and bring balance back to the body's fluids by being a drying agent."
 
-"A rare mineral, eh? Well, I'm just a common man. I havne't much time for special and rare. Home remedies work just fine. There's a witch woman just nearby who can make a fine drying potion."
+"A rare mineral, eh? Well, I'm just a common man. I haven't much time for special and rare. Home remedies work just fine. There's a witch woman just nearby who can make a fine drying potion."
 
 "The tonics, and three coins," said Quill.
 
-The offer seemed about to sway the ferryman, but he added, "It's a fine cart, and a finer beast. I do not see many beasts like that around here. And what wonderous things you must have in the wagon. My boy will have to lash it down tightly to make sure that its valuable and rare contents do not spill over."
+The offer seemed about to sway the ferryman, but he added, "It's a fine cart, and a finer beast. I do not see many beasts like that around here. And what wondrous things you must have in the wagon. My boy will have to lash it down tightly to make sure that its valuable and rare contents do not spill over."
 
 The implication was clear to Manan, and she spoke up, "Two more coins and we never passed this way."
 
-"You're a clever girl, it's a shame I wo not recall your face from my own mother's. Now how about those tonics, my head hurts fiercly."
+"You're a clever girl, it's a shame I will not recall your face from my own mother's. Now how about those tonics, my head hurts fiercely."
 
 "I'll prepare them while we're on the river."
 
@@ -1410,13 +1410,13 @@ The implication was clear to Manan, and she spoke up, "Two more coins and we nev
 
 "Agreed," said Quill. He produced a handful of coins and handed them to the ferryman. "Now may we get going?"
 
-"After you, master," the ferryman said with an exagerated flourish of his hands.
+"After you, master," the ferryman said with an exaggerated flourish of his hands.
 
-They loaded the wagon onto the ferry. The boy, who seemed reluctant to look Manan in the eyes, strapped it down with heavy rope. The beast performed well. He obviously was used to travelling this way. As they cast off from the stubby dock, Manan went inside the wagon and began to prepare the tonics for the ferryman.
+They loaded the wagon onto the ferry. The boy, who seemed reluctant to look Manan in the eyes, strapped it down with heavy rope. The beast performed well. He obviously was used to traveling this way. As they cast off from the stubby dock, Manan went inside the wagon and began to prepare the tonics for the ferryman.
 
-In the cabinets of herbs and minerals and other distillations, Manan's fingers quickly picked from the stock. She stuffed three bottles with the materials she selected, then filled thebottles with water from the remaining vessel, taking a few sips herself. If only Ethne had been there, she could have warmed the mixture to a proper temperature to release the characteristics of the materials.
+In the cabinets of herbs and minerals and other distillations, Manan's fingers quickly picked from the stock. She stuffed three bottles with the materials she selected, then filled the bottles with water from the remaining vessel, taking a few sips herself. If only Ethne had been there, she could have warmed the mixture to a proper temperature to release the characteristics of the materials.
 
-But Ethne was not there. She was not stuffed underfoot into the smuggler's compartment. She was not on the raft, letting the sun warm her face. She was not even whining about this or resisting that. Manan began to cry, but scoleded herself for being so stupid. She hardly knew Ethne. Now their ways had parted, just as she had parted ways with countless others in her life. Such was the nature of life. So many people wandering through this world. What was the chance that any two of them could stick together for a meaningful amoutn of time?
+But Ethne was not there. She was not stuffed underfoot into the smuggler's compartment. She was not on the raft, letting the sun warm her face. She was not even whining about this or resisting that. Manan began to cry, but scolded herself for being so stupid. She hardly knew Ethne. Now their ways had parted, just as she had parted ways with countless others in her life. Such was the nature of life. So many people wandering through this world. What was the chance that any two of them could stick together for a meaningful amount of time?
 
 When she reappeared, Quill and the ferryman were talking. "Has anyone told you that you're the image of Lord Corby. You might as well be him in disguise."
 
@@ -1428,33 +1428,33 @@ When she reappeared, Quill and the ferryman were talking. "Has anyone told you t
 
 The ferryman touched his nose and gave Quill a wink. "Of course, my good man. Speak no more. I'm sure I have a few of those out there in the world myself. Ah, and here's the young lady herself with my medicine."
 
-"Yes, but it is not fully prepeared." The ferryman frowned. "I do not have anything to heat it with. It needs to be heated over a flame and cooled before you consume it. But no more than three drops on the middle of your tounge."
+"Yes, but it is not fully prepared." The ferryman frowned. "I do not have anything to heat it with. It needs to be heated over a flame and cooled before you consume it. But no more than three drops on the middle of your tongue."
 
 "Ah, that's a good girl. I want this mess cleared from my head."
 
 ***
 
-They travelled for several hours down the river. It was a wide river, sprawling and slow. The ferryman did not seem to exert himself working the craft, though Manan supposed the getting back upstream required more work. After the cold rough riding they had done in the mountains, Manan enjoyed this lazy, effortless way of travelling. 
+They traveled for several hours down the river. It was a wide river, sprawling and slow. The ferryman did not seem to exert himself working the craft, though Manan supposed the getting back upstream required more work. After the cold rough riding they had done in the mountains, Manan enjoyed this lazy, effortless way of travelling. 
 
 Trees began to dot the landscape, then surround the river. Deep in their recesses, Manan could hear birds crying out and animals prowling, but there was little to see in the dense tangle and undergrowth. It did occur to her that they could be attached easily from the woods. They were very exposed on the raft. There was not even a cabin to hide in if they were shot with arrows.
 
-But they were not attacked. Soon enough bridges began to appear that spanned the river. They passed fisherman hauling in nets thrown out in the water. The river must have touched a road for some time because they saw farmers with handcarts and oxens. A few messengers galloped by. A troop of soliders marched over a bridge.
+But they were not attacked. Soon enough bridges began to appear that spanned the river. They passed fisherman hauling in nets thrown out in the water. The river must have touched a road for some time because they saw farmers with handcarts and oxen. A few messengers galloped by. A troop of soldiers marched over a bridge.
 
-All of these people, coming and going, were part of the ebb and flow of life in this area. The ebb and flow meant that the town and castle were nearby. But it also suggested to Manan that stability, normality, might just be lurking nearby. The idea of being away from towers inhabitated by madmen, of being chased in the woods by avenging guardians, was appealing to her. If she only knew why Quill had settled on this place, instead of some other far flung place, she could rest easier.
+All of these people, coming and going, were part of the ebb and flow of life in this area. The ebb and flow meant that the town and castle were nearby. But it also suggested to Manan that stability, normality, might just be lurking nearby. The idea of being away from towers inhabited by madmen, of being chased in the woods by avenging guardians, was appealing to her. If she only knew why Quill had settled on this place, instead of some other far flung place, she could rest easier.
 
-For his part, Quill seemed more on edge rather than less, almost in direct proprostion to her increased sense of comfort and relieve. Manan could tell that he struggled to keep his head up and looking about naturally. When a rider trotted by, he would dart casual glances, sometimes turning his whole body in a meandering, seemingly pointless circle. But it was clear that he was keeping track of everyone they passed.
+For his part, Quill seemed more on edge rather than less, almost in direct opposition to her increased sense of comfort and relieve. Manan could tell that he struggled to keep his head up and looking about naturally. When a rider trotted by, he would dart casual glances, sometimes turning his whole body in a meandering, seemingly pointless circle. But it was clear that he was keeping track of everyone they passed.
 
-When they reached the ferry's end, the ferryman and his boy got to work landing the craft, unsecuring the wagon, and preparing for the next passenger. True to his word, as soon as they rolled off the ferry and began to roll the wagon up the river bank, the ferryman turned to his work and ignored their presence completley. He might as well ahve not had any passengers from the lack of interest that he displayed.
+When they reached the ferry's end, the ferryman and his boy got to work landing the craft, unsecuring the wagon, and preparing for the next passenger. True to his word, as soon as they rolled off the ferry and began to roll the wagon up the river bank, the ferryman turned to his work and ignored their presence completely. He might as well have not had any passengers from the lack of interest that he displayed.
 
 "We can only hope that his memory is as bad as he said."
 
-"Look at him," was Manan's reponse. "He does not even look like he knows we exist now."
+"Look at him," was Manan's response. "He does not even look like he knows we exist now."
 
 "Yes, for now. But when a man's life hangs in the balance, it is amazing what he can suddenly remember."
 
 "Do you think that it would come to that?"
 
-"Hard to say. It all depends on how deeply you've woudned the powerful people who took charge of Ethne."
+"Hard to say. It all depends on how deeply you've wounded the powerful people who took charge of Ethne."
 
 "Why would they care? They can burn coal dust in their grates, for all I care."
 
@@ -1466,9 +1466,9 @@ When they reached the ferry's end, the ferryman and his boy got to work landing 
 
 Was Quill revealing something about himself? Manan could not tell. They rode on in silence for some time until a rider appeared on the road behind. It followed them for some time, staying at the same distance, neither falling back or passing them. Quill glanced back at the rider several times, but tried to seem calm about being followed.
 
-Up ahead a stone house sat on the road, Manan could just make out a few soliders sauntering in front of it. An eagle or some other kind of bird was circuling overhead. "Manan," Quill said to her. "Slip back into the wagon. Hide your whatever weapons you have, anything of value that you do not want taken."
+Up ahead a stone house sat on the road, Manan could just make out a few soldiers sauntering in front of it. An eagle or some other kind of bird was circling overhead. "Manan," Quill said to her. "Slip back into the wagon. Hide your whatever weapons you have, anything of value that you do not want taken."
 
-She did so without asking why, figuring that these soliders must have a reputatino for lifting items off of travelers, especially passengers who were not under the lord's protection. When she sat back next to him, he leaned over, casually, and said, "I think there's going to be some trouble up ahead. But let's be calm about it. I could be wrong."
+She did so without asking why, figuring that these soldiers must have a reputation for lifting items off of travelers, especially passengers who were not under the lord's protection. When she sat back next to him, he leaned over, casually, and said, "I think there's going to be some trouble up ahead. But let's be calm about it. I could be wrong."
 
 "Where are we going? How do you know?
 
@@ -1486,7 +1486,7 @@ The two guards glanced at each other, then up to the house's upper window. Veile
 
 "What are they doing?"
 
-"Protocol. They're waiting for a message to return from Lord Corby's Master of the Guards, Trent, if memory serves. That bird up above is keeping tbas on us too, you know. Has been for the last few miles."
+"Protocol. They're waiting for a message to return from Lord Corby's Master of the Guards, Trent, if memory serves. That bird up above is keeping tabs on us too, you know. Has been for the last few miles."
 
 "They knew I was coming, how did they know?" Manan looked around. She could probably make it into the woods, but who knew how far she could go before a rider rode her down or some loyal peasant called her out.
 
@@ -1494,17 +1494,17 @@ The two guards glanced at each other, then up to the house's upper window. Veile
 
 "In you?" 
 
-Before Manan could follow up with more questions, another rider appeared down the road. He reined up his horse at the house. Another soldier, dressed more finely, with a well manicured beard walked out of the house. The rider handed him a slip of paper. The captiain, or so Manan took him to be, nodded and waved the guards forward. The captain whislted and the bird began swooping down in a gyre and landed on his shoulder. 
+Before Manan could follow up with more questions, another rider appeared down the road. He reined up his horse at the house. Another soldier, dressed more finely, with a well manicured beard walked out of the house. The rider handed him a slip of paper. The captain, or so Manan took him to be, nodded and waved the guards forward. The captain whistled and the bird began swooping down in a gyre and landed on his shoulder. 
 
 The brown headed bird bobbed back and forth, stepping side the side, as the captain walked forward with this guards. When they were within a few feet of the wagon, the guards lowered their pikes into a striking position. "Are you, as you appear to be, Hirath Wren, second son of Constantine Wren, the former Lord of Corby?"
 
 "I am."
 
-"Then sir, by the order of Lord Corby's Master of Guards and in the name of Lord Corby, the land protect his body, I pronounce you a traitor Lord and under arrest, to be detained in the deungeons of Castle Corby indefinitely. Guards seize this man and his girl. This property is now Lord Corby's. You may take them away and plunder what you find in the wagon."
+"Then sir, by the order of Lord Corby's Master of Guards and in the name of Lord Corby, the land protect his body, I pronounce you a traitor Lord and under arrest, to be detained in the dungeons of Castle Corby indefinitely. Guards seize this man and his girl. This property is now Lord Corby's. You may take them away and plunder what you find in the wagon."
 
 "No! You ca not! He..." Manan was about to shout that she was being  held hostage, but he looked at her with a sad but encouraging look. As if to say that he wanted her to say it, to protect herself, but was made tired by the whole affair. But she stopped short and fell silent and let the guards shackle her hands.
 
-They led her and Quill into the guard's house, where they were made to kneel on the floor and wait for the jailer to send for them. Manan could heard the guards rifling through the wagon--mostly curses that they did not find treasure, just old pots and plants. More horse hoofs soudned on the road. Then it soudned like the beast and the wagon were led away.
+They led her and Quill into the guard's house, where they were made to kneel on the floor and wait for the jailer to send for them. Manan could heard the guards rifling through the wagon--mostly curses that they did not find treasure, just old pots and plants. More horse hoofs sounded on the road. Then it sounded like the beast and the wagon were led away.
 
 A grizzled and scarred solider entered the house. The captain bowed in deference, saying, "Master Trent. Here are the traitor and his girl."
 
@@ -1524,27 +1524,27 @@ She glanced at Quill, but his face did not move. "Mmm...Manan..."
 
 "No, I am not!"
 
-"Good, then once we loosen your tongue you can use it to tell us stories about our mutual friend here. I look forward to it immensenly."
+"Good, then once we loosen your tongue you can use it to tell us stories about our mutual friend here. I look forward to it immensely."
 
-"She's innocnet, Trent. You should let her go now..."
+"She's innocent, Trent. You should let her go now..."
 
 "Why? So that she can spread discord and confusion like you? I have no doubt she's a disciple of yours. Even a brush with you has been known to corrupt."
 
-"Then I only beg that mercy be shown her, in the name of Lord Corby." Master Trent's heavy hand whipped across Quill's face, making a popping sound. "You will not speak his name in my presnece." He turned to leave. "You made a mistake coming here, Hirath. A mistake that I shall enjoy thoroughly."
+"Then I only beg that mercy be shown her, in the name of Lord Corby." Master Trent's heavy hand whipped across Quill's face, making a popping sound. "You will not speak his name in my presence." He turned to leave. "You made a mistake coming here, Hirath. A mistake that I shall enjoy thoroughly."
 
 ##Chapter 12##
 
-Once again, Manan found herself imprisoned in a cell. At least now, she was buried somewhere down in the bowels of the castle, where it was damp, but warm enough. She had been given a plain prisoner's dress, with two crudely stitched pockets in front. She felt bare without her vests and wraps with their endless number of pockets and places to tuck away this and that. Fortunately, she had hidden her most valuable possessions and her weapons. But the guards had enjoyed a good laught stripping "their little witch" as little vials and pouches fell this way and that across the floor when she was stripped before entering the dungeon.
+Once again, Manan found herself imprisoned in a cell. At least now, she was buried somewhere down in the bowels of the castle, where it was damp, but warm enough. She had been given a plain prisoner's dress, with two crudely stitched pockets in front. She felt bare without her vests and wraps with their endless number of pockets and places to tuck away this and that. Fortunately, she had hidden her most valuable possessions and her weapons. But the guards had enjoyed a good laugh stripping "their little witch" as little vials and pouches fell this way and that across the floor when she was stripped before entering the dungeon.
 
 At night, after the guards' fires had been stamped out, the cells grew colder. Manan would shove her hands as deep as they could go into these two pockets, rubbing her thumb across the tops of her finger, trying to keep them warm. Night time was the worse part of her captivity. Without the fires, the cells fell into darkness. It was in the pitch black that the other prisoners began to wail and scratch and scream. Otherwise, despair silence them. There was only the crude ramblings of the guards to listen to.
 
-Try as she might, she could not pick up any information from the guards. It was not any cleverness on their part either. These really were low creatures that worked down here. After all, they only had to exert enough will to sit in one place for several hours at a time. Their brillance only came through in the many ways they passed that time--games with bones and dice, telling dirty stories, sharpening their weapons, and so on.
+Try as she might, she could not pick up any information from the guards. It was not any cleverness on their part either. These really were low creatures that worked down here. After all, they only had to exert enough will to sit in one place for several hours at a time. Their brilliance only came through in the many ways they passed that time--games with bones and dice, telling dirty stories, sharpening their weapons, and so on.
 
-Fortunatley Manan provided them with new sport. They spent countless hours jeering over the ways that she would be tortured and killed. They imagined lavish scenarios involving strange machines that Manan had never heard of before. Most of the stories ended with her being fed to some kind of wild animal, mostly their Lord's dogs. But of those dogs, they singled out one in particular, an old limping mutt named Hirath, whose master had a tendency to kick and berate. It seemed that this dog, named for the infernal traitor himself, was prone to vomiting up its food and eating it up again. 
+Fortunately Manan provided them with new sport. They spent countless hours jeering over the ways that she would be tortured and killed. They imagined lavish scenarios involving strange machines that Manan had never heard of before. Most of the stories ended with her being fed to some kind of wild animal, mostly their Lord's dogs. But of those dogs, they singled out one in particular, an old limping mutt named Hirath, whose master had a tendency to kick and berate. It seemed that this dog, named for the infernal traitor himself, was prone to vomiting up its food and eating it up again. 
 
-She had not seen or heard of Quill since being thrown into her little cell. She tried to work over in her mind what must have happened. Their capture happened so suddenly that the events still needed sorting out. In particular, she thought over what betrayal Quill must have committed to be considered dangerous after all of these years. But these thoughts were little more than her equivalnet of the guard's bawdy tales, a torrent of words with repetitive action and resolving on nothing.
+She had not seen or heard of Quill since being thrown into her little cell. She tried to work over in her mind what must have happened. Their capture happened so suddenly that the events still needed sorting out. In particular, she thought over what betrayal Quill must have committed to be considered dangerous after all of these years. But these thoughts were little more than her equivalent of the guard's bawdy tales, a torrent of words with repetitive action and resolving on nothing.
 
-Despite the grim circumstances, Manan's spirits remained high. She even held onto the belief that she would find a way out of this mess. Perhaps it was due to the nature fo her life up till now. Being flung from one set of circumstances to the next had made her very resilient. There had always been the next horizon to aim for, so why would that change now?
+Despite the grim circumstances, Manan's spirits remained high. She even held onto the belief that she would find a way out of this mess. Perhaps it was due to the nature of her life up till now. Being flung from one set of circumstances to the next had made her very resilient. There had always been the next horizon to aim for, so why would that change now?
 
 After several days spent in the dungeon, one of the guards, whom Manan had taken to calling Meat, because he seemed to always be roasting something over the guards fire, struck her cell with his guard's stick, waking her up from a mid-day nap. "Get up you. Time to see the Father."
 
@@ -1554,17 +1554,17 @@ After several days spent in the dungeon, one of the guards, whom Manan had taken
 
 He led her up to another level of the dungeon, to a much less dreary spot. Here the walls had been whitewashed and little portals up above let in light from the outside. There were not cells here, as much as apartments--solid walls, wooden door, and barred windows kept the prisoners at bay. The place still smelled vile, but the atmosphere was generally more genteel.
 
-The guard led her to a cell that could hardly be called a cell since the door was left wide open. He poked her inside with his stick. She stumbled into a large cell with a roaring fireplace, a table and chair, a fine looking bed. In padded chair sat an old man with a sleeping cap on his head. He wore fingerless gloves, and a tattered coat. His face was ashy gray, but closely shaven. He looked like an old gentleman who happned to be transported to this unlikely setting.
+The guard led her to a cell that could hardly be called a cell since the door was left wide open. He poked her inside with his stick. She stumbled into a large cell with a roaring fireplace, a table and chair, a fine looking bed. In padded chair sat an old man with a sleeping cap on his head. He wore fingerless gloves, and a tattered coat. His face was ashy gray, but closely shaved. He looked like an old gentleman who happened to be transported to this unlikely setting.
 
 "Here's the Father, girl. Mind you tongue. And nothing stupid."
 
 The guard turned to leave. The Father looked up from a book he read, "Ah, the new girl, are you?"
 
-"Yes, yes, sir." Manan said, curseying as she did.
+"Yes, yes, sir." Manan said, curtsying as she did.
 
 "My visitors often are so kind to come see me. They often leave even the smallest consideration. I beg them not too, but often they are overwhelmed by their gratitude that they do anyway." The man rubbed his hands together and licked his lips, watching Manan as he did. She stared back at him dumbly, not knowing what to do.
 
-"Ah, well, the spirit moves some sooner than others, I suppose. Come sit, sit, child." He gestured to a very low stool in front of the chair where he sat. She crouched down on it, lookign up at him, as if awaiting a story from an ancient grandfather. "Comfortable?"
+"Ah, well, the spirit moves some sooner than others, I suppose. Come sit, sit, child." He gestured to a very low stool in front of the chair where he sat. She crouched down on it, looking up at him, as if awaiting a story from an ancient grandfather. "Comfortable?"
 
 Of course she was not, but she was not crazy enough to say so, "Yes, sir, it's a very nice stool."
 
@@ -1576,7 +1576,7 @@ Of course she was not, but she was not crazy enough to say so, "Yes, sir, it's a
 
 "Treason, sir. I am here for treason."
 
-The charge did not move the man at all. He did not blink or blush. "Well, reflect on me and my situation. See how plainly I live, how pure, how simple. Reflect on this child, learn from this, and you would sooner committ..."
+The charge did not move the man at all. He did not blink or blush. "Well, reflect on me and my situation. See how plainly I live, how pure, how simple. Reflect on this child, learn from this, and you would sooner commit..."
 
 "Treason, Father."
 
@@ -1586,7 +1586,7 @@ The charge did not move the man at all. He did not blink or blush. "Well, reflec
 
 Manan must have performed her duties to the Father's satisfaction because soon she was called back to his cell often. Then every morning, one of the guards would rouse her and lead her to the Father. She would warm water for his morning shave, prepare coffee for him, and lay out his morning meal. The Father's meals were lavish compared to the fare she was used to down below. But she quickly realized that the Father received special "considerations" from the other prisons. Sometimes the guards even passed along little confections, warm baked bread, a slice of fine meat. Even they held the Father in a special reverence and seemed almost as proud to serve him and their own Lord Corby.
 
-As the Father's new favorite, Manan began to receive special treatment too. Her prisoner's dress was replaced by something more "presentable" as the Father called it, and was probably a handme down from some little lady in the castle. But it was comfortable enough and kept Manan much warmer than her other clothes. She understood that she was not to partake of the Father's meals, but she received better food as well.
+As the Father's new favorite, Manan began to receive special treatment too. Her prisoner's dress was replaced by something more "presentable" as the Father called it, and was probably a hand-me down from some little lady in the castle. But it was comfortable enough and kept Manan much warmer than her other clothes. She understood that she was not to partake of the Father's meals, but she received better food as well.
 
 It was not long before the Father pointed to a corner of the cell and said, "This is a very dry and cozy corner, would not you say?"
 
@@ -1596,15 +1596,15 @@ It was not long before the Father pointed to a corner of the cell and said, "Thi
 
 "If I were asked, yes I would."
 
-"Well, I am asking..." Manan had grown so used to the Father's indirect way of talking, that she took his meaning immediately. She was to sleep in the Father's cell in the little corner. She did not pause to consider whether or not she wanted to be a de facto servant. It was immediatley clear to her that she would do it. 
+"Well, I am asking..." Manan had grown so used to the Father's indirect way of talking, that she took his meaning immediately. She was to sleep in the Father's cell in the little corner. She did not pause to consider whether or not she wanted to be a de facto servant. It was immediately clear to her that she would do it. 
 
 She had no belongings so moving day was as simple as being led to the Father's cell one last time. After that the guards did not come back for her. In fact, after she moved, they seemed to pay very little attention to her. She ran little errands for the Father, and for the guards. Even though she was the "traitor's girl," she began to move as freely about the place as if she had just decided that living in a jail would be a pleasant and normal thing.
 
-The only other contact that she had with the guards occured when they brought a new resident to see the Father. The Father seemed to know when someone new had been thrown into a jail. He would say to her, "Make the place especially tidy, girl. We'll be having visitors soon to pay their respects." Without fail he was right. Some thief or murder would stop by, abject, pitiful, and shamed. At the mention of a consideration, some would blush, others would produce some small bit of coin, or a knick knack of questionable value. 
+The only other contact that she had with the guards occurred when they brought a new resident to see the Father. The Father seemed to know when someone new had been thrown into a jail. He would say to her, "Make the place especially tidy, girl. We'll be having visitors soon to pay their respects." Without fail he was right. Some thief or murder would stop by, abject, pitiful, and shamed. At the mention of a consideration, some would blush, others would produce some small bit of coin, or a knick knack of questionable value. 
 
-Manan was surpised by the steady flow of prisoners in and out of the jail. She gathered that the border rebellions that Master Trent referred to was the source of most. But it also seemed that Lord Corby was a tempestous man, easily slighted, and quick to anger. She was sometimes shocked by the causes for imprisonment that the Father's vistors recited. Eating habits, mispronounced words, a sloppy appearance were all likely to send someone to the dungeons, even lords and knights.
+Manan was surprised by the steady flow of prisoners in and out of the jail. She gathered that the border rebellions that Master Trent referred to was the source of most. But it also seemed that Lord Corby was a tempestuous man, easily slighted, and quick to anger. She was sometimes shocked by the causes for imprisonment that the Father's visitors recited. Eating habits, mispronounced words, a sloppy appearance were all likely to send someone to the dungeons, even lords and knights.
 
-With every new visitor, every time she passed the guard, Manan tried to catch news about Quill. But she heard and learned nothing, leaving her to vascillate between hope and despair about this fate. Whereever he was and whatever was happening to his, he had not been sent to visit the Father, leaving MAnan to assume that Lord Corby had prepared special accomodations for him.
+With every new visitor, every time she passed the guard, Manan tried to catch news about Quill. But she heard and learned nothing, leaving her to vacillate between hope and despair about this fate. Wherever he was and whatever was happening to his, he had not been sent to visit the Father, leaving Manan to assume that Lord Corby had prepared special accommodations for him.
 
 ***
 
@@ -1616,7 +1616,7 @@ The Father protested lightly when the guards came for her one day. "What am I to
 
 "Of course Father, do not you worry. Oh, and you'll be having some company soon. You can count on it."
 
-"Well then you simply must bring her back to me and quikcly as you can. I'm helpless without my mouseling. Simply helpless."
+"Well then you simply must bring her back to me and quickly as you can. I'm helpless without my mouseling. Simply helpless."
 
 As the guards led her away, the Father's headed nodded as he dozed off again and slept. At the guard's station, a guard she had named Sup threw a cover over her head and bound her wrists together. "Well be walking for a time. But you do not need to know where."
 
@@ -1636,13 +1636,13 @@ Again no answer.
 
 He slapped her several times, heavy blows like the one he had given Quill. Manan could feel her face puffing and blood running from her mouth. The woman stepped forward now, "Master Trent, I would prefer that you not damage my patient."
 
-"Hmmm," the old guard muttered. He gave way to this woman, whose opioions obviously held sway over his. "A heavy fist has only been enough to produce the truth."
+"Hmmm," the old guard muttered. He gave way to this woman, whose opinions obviously held sway over his. "A heavy fist has only been enough to produce the truth."
 
-"Maybe on the battlefield, but here we have other methods." The woman smiled, suddenly trying to look like a serene angel. It was concivncing enough, Manan had to give her that.
+"Maybe on the battlefield, but here we have other methods." The woman smiled, suddenly trying to look like a serene angel. It was convincing enough, Manan had to give her that.
 
 As the torture proceeded, it became clear that the woman's methods were more subtle, though no less painful. In fact, Manan started to wish that Master Trent would deliver a few swift blows, maybe kick her a few times, and leave her be. This woman had her whole body screwed up into unnatural positions. Manan's arms were stretched and torqued back on the rods that attached to the chairs. The woman put screws seemingly to every fragile part of her body. 
 
-The woman leaned back the chair, covered Manan's head again, and began to pour water over her face. All of her breath left her body, she started to gag and flail. Yet the water continued to be poured, over and over again. MAnan felt like she had been sent to bottom of a well, sent there to drown over and over again.
+The woman leaned back the chair, covered Manan's head again, and began to pour water over her face. All of her breath left her body, she started to gag and flail. Yet the water continued to be poured, over and over again. Manan felt like she had been sent to bottom of a well, sent there to drown over and over again.
 
 When the woman stopped and propped her up, she removed the head covering, smiled and said, "There is a very easy way to make this all stop."
 
@@ -1650,23 +1650,23 @@ When the woman stopped and propped her up, she removed the head covering, smiled
 
 The torture did not stop, because it could not. Having been beaten and stretched and nearly drowned, Manan could hardly think of a convincing lie. And the truth, which she offered up freely, was not compelling enough either. She had only known this man for a few weeks or so. She did not know that he was a traitor. She knew nothing about future plots. There were no conspirators, though Manan did consider offering up the Master and his followers, assuming they were still alive.
 
-So the pain continued. It blossomed from places Manan did not know pain could grow. Her whole being was given over to the pain. She would have said anything to make it stop, if only she could remember anything to say. The woman who directed and administered the pain never seemed frustrated or angry by the lack of progress. She seemed ot exist outside of normal time, a time wherein slowly severing a fingertip could take all day. And in Manan's case, it it. Then cauterizing it became the follow up act.
+So the pain continued. It blossomed from places Manan did not know pain could grow. Her whole being was given over to the pain. She would have said anything to make it stop, if only she could remember anything to say. The woman who directed and administered the pain never seemed frustrated or angry by the lack of progress. She seemed to exist outside of normal time, a time wherein slowly severing a fingertip could take all day. And in Manan's case, it it. Then cauterizing it became the follow up act.
 
-When they took her back to the Father's cell, he was asleep, and rolled out of bed. "Oh, dear, dear. What did they do to my mouseling? This wo not do. This wo not do at all."
+When they took her back to the Father's cell, he was asleep, and rolled out of bed. "Oh, dear, dear. What did they do to my mouseling? This will not do. This will not do at all."
 
-Manan, broken in pieces, covered in dried blood, and missing the tip of her index finger, curled up in a shredded paper nest, and pretended to be the mousling that the Father called her.
+Manan, broken in pieces, covered in dried blood, and missing the tip of her index finger, curled up in a shredded paper nest, and pretended to be the mouseling that the Father called her.
 
-In the morning, the guard called Meat brough the Father's breakfast and informed him that a special visitor would be coming by later in the day. The guard roused Manan, saying "You've got work to do, little girl. Time to get on yer feet."
+In the morning, the guard called Meat brought the Father's breakfast and informed him that a special visitor would be coming by later in the day. The guard roused Manan, saying "You've got work to do, little girl. Time to get on yer feet."
 
-Manan pulled herself up off the ground, in more pain than she could imagine was possible. Somehow, she staggered forward, taking one step then another. Soon enough the pain was just a dull background ache. She tried to give her mind totally over to the menail job of tending to the Father. He did not comment on her appearance or what had happened to her. When he saw her fingertip, he made a little "tsk tsk" sound, but she was not sure if this was directed at her or someone else.
+Manan pulled herself up off the ground, in more pain than she could imagine was possible. Somehow, she staggered forward, taking one step then another. Soon enough the pain was just a dull background ache. She tried to give her mind totally over to the menial job of tending to the Father. He did not comment on her appearance or what had happened to her. When he saw her fingertip, he made a little "tsk tsk" sound, but she was not sure if this was directed at her or someone else.
 
 "Mouseling, be sure that the table is clear and the rug is clean for our visitor today. I want the tea to be hot. And warm some of those biscuits on the shelf. A fine lady brought those for me today. I am in the mood to share. I do hope that we have a considerate visitor though. I am tired of the ones that keep passing through. They seem overly anxious to leave my company. I much prefer that we sit and have a nice chat before parting ways."
 
-Much of this dialog Manan only half heard. She could not hear well out of her left ear for somereason. Maybe her swollen left eye had something to do with it, thogh there was no real reason that this should be the case. The Father read while she was swept the cell, cleaned the ashes from the hearth, and tidied his bed. While the Father napped, she lay out flat on the floor, staring at the ceiling above her, wondering when her body would stop hurting.
+Much of this dialog Manan only half heard. She could not hear well out of her left ear for some reason. Maybe her swollen left eye had something to do with it, though there was no real reason that this should be the case. The Father read while she was swept the cell, cleaned the ashes from the hearth, and tidied his bed. While the Father napped, she lay out flat on the floor, staring at the ceiling above her, wondering when her body would stop hurting.
 
 Throughout the day, several of the neighboring inmates, who were also allowed more freedom and come and go, stopped by and paid their respects to the Father. Manan did her best to stay out of sight, knowing that the Father would not want her seen, and not wanting be seen herself. She could not help herself from jumping out of the dark shadows when she saw the back of someone she recognized. 
 
-Only his back stood straight and tall and two able feet carried it along. But the back unmistakaebly was Quill's. She leapt out and hugged him, only to be pushed back by one of the guards. "Mouseling, what's this? Who's this?" He looked up at the visitor, "You! How dare you come here! Take him away! Out of my sight!"
+Only his back stood straight and tall and two able feet carried it along. But the back unmistakably was Quill's. She leaped out and hugged him, only to be pushed back by one of the guards. "Mouseling, what's this? Who's this?" He looked up at the visitor, "You! How dare you come here! Take him away! Out of my sight!"
 
 "Hello, father," Quill said, smiling. "I'm glad to see you're well."
 
@@ -1674,15 +1674,15 @@ Only his back stood straight and tall and two able feet carried it along. But th
 
 ##Chapter 13##
 
-"That's hardly fair, after all of these years, father," Quill said, moving to sit in the one of the chairs at the table near the Father. Manan could not decipher whether or not Quill meant that the FAther was his father, or was simply carrying some kind of joke too far. But she was also preoccupied with studying this new version of Quill, or was this Hirath now?
+"That's hardly fair, after all of these years, father," Quill said, moving to sit in the one of the chairs at the table near the Father. Manan could not decipher whether or not Quill meant that the Father was his father, or was simply carrying some kind of joke too far. But she was also preoccupied with studying this new version of Quill, or was this Hirath now?
 
-He still seemed amused and slightly removed, but his face wore a much easier look and his body seemed less tensed up. Seeing this more natural and relaxed posture made Manan realize how comical his hunched, crippled act had been. The Father, howver, was fluttering around the cell, wringing his hands, muttering, "He returned and he was not meant to return. How can this be. Where are the guards? Mouseling, Mouseling, go fetch the guards."
+He still seemed amused and slightly removed, but his face wore a much easier look and his body seemed less tensed up. Seeing this more natural and relaxed posture made Manan realize how comical his hunched, crippled act had been. The Father, however, was fluttering around the cell, wringing his hands, muttering, "He returned and he was not meant to return. How can this be. Where are the guards? Mouseling, Mouseling, go fetch the guards."
 
 "No, stay 'Mouseling'. I have a story to tell that I think you will enjoy. Is your mouseling able to sit and enjoy a story father, or is obliged to work to death, like so many of your subjects before?"
 
 "That is unfair. An unfair charge. I built this, all of this. Without me none of this would exist."
 
-"He's right, 'Mouseling.' Without the efforts of this man before us, none of this would exist. You seemed surprised? Did he not tell you that he is none other than Constantine Wren, the first Lord of Corby." Of course, Manan had no idea. "Yes, yes, I can see the questions forming on your face. Well, sit down and I will explain how the first Lord of Corby became a prisoner in his own dungeon. Of course, we must start with the fact that Constantine Wren is an invented name. This man was first known as Baruth. When I was a small boy, this was the name that men called him. Baruth was a skilled and ambitious soldier, who turned a fortune made from plunder during war into a larger fortune during trade. But his ambitions did not stop at being the largest land owner, the first among the old line of gentry in this land. He had his sights on the throne. He would be lord and leige over all these men and land."
+"He's right, 'Mouseling.' Without the efforts of this man before us, none of this would exist. You seemed surprised? Did he not tell you that he is none other than Constantine Wren, the first Lord of Corby." Of course, Manan had no idea. "Yes, yes, I can see the questions forming on your face. Well, sit down and I will explain how the first Lord of Corby became a prisoner in his own dungeon. Of course, we must start with the fact that Constantine Wren is an invented name. This man was first known as Baruth. When I was a small boy, this was the name that men called him. Baruth was a skilled and ambitious soldier, who turned a fortune made from plunder during war into a larger fortune during trade. But his ambitions did not stop at being the largest land owner, the first among the old line of gentry in this land. He had his sights on the throne. He would be lord and liege over all these men and land."
 
 "His money bought secret armies. There was even a certain brotherhood that was once connected to Baruth, who now styled himself 'Constantine Wren.' In every lord's household men lay in wait making secret signs to each other, ready to strike when the call came. By now, I was young man, probably not much older than you mouseling. Oh, and my brother, of course, well my half brother. We did not know about him, mother and I. But when Constantine felt the time was right to strike, he introduced into his household his natural son, my brother born of another mother, the daughter of a lord he hoped to make an alliance with."
 
@@ -1690,19 +1690,19 @@ He still seemed amused and slightly removed, but his face wore a much easier loo
 
 "That was my hope, but my hopes had little to do with reality. My new found brother was secretive and cruel and nasty. He immediately took to the idea that my friendly gestures were meant to draw him into a trap. He set himself against me, and set my father against me too. Or at least he planted the seeds...but I am getting ahead of myself."
 
-"One by one, the gentry fell, toppled by Constantive Wren, now Lord Corby, and his secret armies. When the ancient great houses lay in ruin, his first act was the build a grand castle and establish a town around it, to mark the new era. He made the lords and ladies work the stone themslves, made them haul the ruins of their own houses to this spot. They had to build Castle Corby with the wreck of their former lives."
+"One by one, the gentry fell, toppled by Constantine Wren, now Lord Corby, and his secret armies. When the ancient great houses lay in ruin, his first act was the build a grand castle and establish a town around it, to mark the new era. He made the lords and ladies work the stone themselves, made them haul the ruins of their own houses to this spot. They had to build Castle Corby with the wreck of their former lives."
 
-"Traiters were rounded up and pressed into slavery too. Many died building this hulking thing. Blood ran freely from the whip and the sword. I protested one too many times and was sent into exile, the first of many. I secretly returned earlier than anyone expected, worked my way into the new houses that were being built. I worked inte kitchens, in the stables, in the fields. I lowered myself and watched and learned."
+"Traitors were rounded up and pressed into slavery too. Many died building this hulking thing. Blood ran freely from the whip and the sword. I protested one too many times and was sent into exile, the first of many. I secretly returned earlier than anyone expected, worked my way into the new houses that were being built. I worked in the  kitchens, in the stables, in the fields. I lowered myself and watched and learned."
 
-"No, you must stop this story! This is not a good story!" the Father was writhing in his chair. Quill's story completely made him come undone. But Manan noticed how disconnected he seemed from the story, as if it was about someone else. Maybe he really had become the Father of the dungens in his mind and remembered nothing of this former time, or saw it as if in the bottom of a well, as a series of dark and broken images.
+"No, you must stop this story! This is not a good story!" the Father was writhing in his chair. Quill's story completely made him come undone. But Manan noticed how disconnected he seemed from the story, as if it was about someone else. Maybe he really had become the Father of the dungeons in his mind and remembered nothing of this former time, or saw it as if in the bottom of a well, as a series of dark and broken images.
 
-"I'm sorry father, but I am in a narrating mood, so I will continue narrating. I did not make myself known until I learned that my mother had been murdered by one of Lord Corby's...thugs. I stole into my father's chamber one night, and tried to reason with him, to draw out some humanity in him. I failed and ended up in the castle dungeon for my efforst--again, the first of many times."
+"I'm sorry father, but I am in a narrating mood, so I will continue narrating. I did not make myself known until I learned that my mother had been murdered by one of Lord Corby's...thugs. I stole into my father's chamber one night, and tried to reason with him, to draw out some humanity in him. I failed and ended up in the castle dungeon for my efforts--again, the first of many times."
 
 "Little did my father know that his other son was just as cruel and ambitious as him, if not more so. He paid a woman, a traveler who bore a striking resemblance to my mother to appear before my father..."
 
 "No! You mus not! I can see! I can hear the voices, the screams...Oh no..." the Father lunged for his bed, and pulled at his hair. He whined and rocked back and forth.
 
-"Well, I think you can see the end result of my brother's efforts. Lord Corby lost his mind, was unfit to rule, and my brother stepped in this place. I could not let this stand, particularly after I learned that it had been my brother's word that condemned my mother to death. With a few...friends of my own, I tried to assiinate my dear, sweet brother, now the second Lord of Corby. Poison, mouseling, which I tried to administer while my sweet brother slept. I did not deliver enough to kill only, only to paralyze the left side of his body. Even now, I am told, Lord Corby does not smile from the left side. Of course, we should all be afraid if Lord Corby were to smile at all, but I digress."
+"Well, I think you can see the end result of my brother's efforts. Lord Corby lost his mind, was unfit to rule, and my brother stepped in this place. I could not let this stand, particularly after I learned that it had been my brother's word that condemned my mother to death. With a few...friends of my own, I tried to assassinate my dear, sweet brother, now the second Lord of Corby. Poison, mouseling, which I tried to administer while my sweet brother slept. I did not deliver enough to kill only, only to paralyze the left side of his body. Even now, I am told, Lord Corby does not smile from the left side. Of course, we should all be afraid if Lord Corby were to smile at all, but I digress."
 
 "Mouseling, the plot failed. On the eve of my execution, a kind soul helped me escape. I was amazed by all of the secret winding passages that were built into the castle. I can still vividly recall emerging into the stables where Lord Corby kept all manner of beast. Maybe you've heard of the stables at Castle Corby? They are large and grand, big enough for a fleet of wagons to be held. And well equipped with equipment and feed for a long ride. So, I was lucky that my guide knew to look at the lower parts of the walls for switches to reveal these passages. In the dark of night, we escaped and never looked back."
 
@@ -1712,7 +1712,7 @@ He still seemed amused and slightly removed, but his face wore a much easier loo
 
 Manan looked round and shrugged. Were they really being listened to? It explained why Quill had been allowed in the room. Someone or someones were closely monitoring him, to see if he let slip any useful information that they could use against him. Whether or not these listeners would cull from the story the important information that Manan did, she could not say, but she knew enough now to attempt an escape.
 
-The guards finally answered the Father's anquished cries for help and led Quill away, back to wherever they were keeping him. The Father immediately fell asleep to shut away the unpleasant events. Manan went about the rest of her chores, sweeping and polishing and tidying up. She couldnt help marvelling that she was playing chambermaid to a lord, an infamous monsterous lord who had lost his mind. 
+The guards finally answered the Father's anguished cries for help and led Quill away, back to wherever they were keeping him. The Father immediately fell asleep to shut away the unpleasant events. Manan went about the rest of her chores, sweeping and polishing and tidying up. She couldn't help marveling that she was playing chambermaid to a lord, an infamous monstrous lord who had lost his mind. 
 
 ***
 
@@ -1720,23 +1720,23 @@ The next morning, the Father tried to brush off the incidents from the day befor
 
 Manan was trying to keep everything in its proper place too, particularly the excitement she felt knowing that she could leave this place any day now. She only had to find a secret door and a latch and she would be free. Of course, the whole process would be more complicated than that, but she took the Father's advice. Keep those things in their place. She would focus on finding a door for now.
 
-Unfortunately, the Father kept her very busy. Between attending to him and his chamber, and preparing for and cleaing up after the many visits and calls he received, she had no time to explore. She quickly learned though, that there were not any passages leading into this room. She swept each corner of the room thoroughly with a little wispy twigish broom. The Father even praised her for being so thorough, "Excellent work, Mouseling. The floor has never looked better. You really are an excellent mouseling." But her furtive scans of the floor during sweeping did not detect any gaps or latches. 
+Unfortunately, the Father kept her very busy. Between attending to him and his chamber, and preparing for and cleaning up after the many visits and calls he received, she had no time to explore. She quickly learned though, that there were not any passages leading into this room. She swept each corner of the room thoroughly with a little wispy twigish broom. The Father even praised her for being so thorough, "Excellent work, Mouseling. The floor has never looked better. You really are an excellent mouseling." But her furtive scans of the floor during sweeping did not detect any gaps or latches. 
 
 Finally, an opportunity arose to search the area outside the cell more completely. News spread quickly that there was to be an execution later in the day. From what Manan could piece together from the excited, whispered discussions among the prisoners and guards, the castle apothecary was going to be hanged for sorcery and murder. The sorcery itself was not a capital crime, but mixing spells and death were likely to get one killed.
 
-It seemed that a ferryman had been found dead near the riverside. His boy could not be found for questioning; he disappeared as soon as his master fell down dead. Three large bottles of potion found near the ferryman's body. What was strange, though, and surprised Manan was the state in whcih they found the ferryman's body. From what she gathered he had been burned alive, but burned from the inside, as if a flame had grown in his gut and worked its way through him.
+It seemed that a ferryman had been found dead near the riverside. His boy could not be found for questioning; he disappeared as soon as his master fell down dead. Three large bottles of potion found near the ferryman's body. What was strange, though, and surprised Manan was the state in which they found the ferryman's body. From what she gathered he had been burned alive, but burned from the inside, as if a flame had grown in his gut and worked its way through him.
 
-She mentally cataloged the ingredients that she had selected for the tonic, but nothing seemed amiss, unless something had done bad. But all of the ingredients had smelled just fine. Regardless, at least Lord Corby's men had not traced his death back to Quill and herself. It also turned out that the apothecary who suppplied the tonics was a known conspirator against Lord Corby and his people. A whole plot was revealed to be forming to poison his Lordship, with the evil apothecary behind the plan.
+She mentally cataloged the ingredients that she had selected for the tonic, but nothing seemed amiss, unless something had done bad. But all of the ingredients had smelled just fine. Regardless, at least Lord Corby's men had not traced his death back to Quill and herself. It also turned out that the apothecary who supplied the tonics was a known conspirator against Lord Corby and his people. A whole plot was revealed to be forming to poison his Lordship, with the evil apothecary behind the plan.
 
-Such was the world that Lord Corby had created. Trusted servants, long time friends, even family members could be rounded up, tortured, made to confess to the most heinous of acts, then summarily killed in public. The people, at least the people in the dungeon, seemed to have grown accustomed to this world. Their bloodlust made Manan, who had never shied from killing someone if it ensured her surival, feel uncomfortable. The inmates seemed to forget their own situation was as precarious as this poor apothecary's. Any one fo them culd be haging at the gibbet tomorrow. But acting as if they were the Father's disciples, they must have kept those thoughts over there. In the here and now, they all just wanted to see the man swiging and kicking from the rope.
+Such was the world that Lord Corby had created. Trusted servants, long time friends, even family members could be rounded up, tortured, made to confess to the most heinous of acts, then summarily killed in public. The people, at least the people in the dungeon, seemed to have grown accustomed to this world. Their blood lust made Manan, who had never shied from killing someone if it ensured her survival, feel uncomfortable. The inmates seemed to forget their own situation was as precarious as this poor apothecary's. Any one of them could be hanging at the gibbet tomorrow. But acting as if they were the Father's disciples, they must have kept those thoughts over there. In the here and now, they all just wanted to see the man swinging and kicking from the rope.
 
-For her part, Manan felt some small creeping sense of guilt that she woudl be the caues fo this man's death. Whether or not he was truly a traitor mattered little to Manan. The politics of this place meant nothing to her. She did not have the patience to follow the intricate and deeply paranoid threads she heard spun out about how this person was in league with that person against some other person.
+For her part, Manan felt some small creeping sense of guilt that she would be the cause of this man's death. Whether or not he was truly a traitor mattered little to Manan. The politics of this place meant nothing to her. She did not have the patience to follow the intricate and deeply paranoid threads she heard spun out about how this person was in league with that person against some other person.
 
-Stopping the whole thing would be madness. She would not step in his place. But she at least wanted to see this man face to face and decide if he really deserved to die or not. Maybe her mistake would result in ridding the world of villan, a happy accident if this was the case. The Father had no interest in having the traitor pay him respects. When she brought up the subject before him, he merely waved away the idea, "I have no time for traitors. I will not be tainted by them."
+Stopping the whole thing would be madness. She would not step in his place. But she at least wanted to see this man face to face and decide if he really deserved to die or not. Maybe her mistake would result in ridding the world of villain, a happy accident if this was the case. The Father had no interest in having the traitor pay him respects. When she brought up the subject before him, he merely waved away the idea, "I have no time for traitors. I will not be tainted by them."
 
 But the guards did not need to know this. She told Meat that the Father had given her a message to deliver to the traitor. "He's a dangerous one, that one. Be careful in there mouseling," he said. The Father's epithet quickly clung to her wherever she went.
 
-She went down severl levels in the dungeon before she came to the apothecary's cell. Being in the dungeon had already broken him. He sat on the floor, in a puddle of his urine. He smelled of alchohol and piss. "Are...are you here to administer mercy?" he asked, not even looking up.
+She went down several levels in the dungeon before she came to the apothecary's cell. Being in the dungeon had already broken him. He sat on the floor, in a puddle of his urine. He smelled of alcohol and piss. "Are...are you here to administer mercy?" he asked, not even looking up.
 
 "No, I'm just here to deliver a message."
 
@@ -1764,7 +1764,7 @@ The man looked up, his eyes bright red and watery, "A message?"
 
 "Well, if you poisoned..."
 
-"I tell you that I did not. I did no such thing. I'm a doctor, a healer. I do not murder people. And I'm loyal to his lordship. I have tended to him since he was a boy and would have coughing fits after runnign through the spring fields."
+"I tell you that I did not. I did no such thing. I'm a doctor, a healer. I do not murder people. And I'm loyal to his lordship. I have tended to him since he was a boy and would have coughing fits after running through the spring fields."
 
 "But is it even possible?"
 
@@ -1776,7 +1776,7 @@ The man looked up, his eyes bright red and watery, "A message?"
 
 Manan thought of a good lie, "Maybe if you tell me, then I can try to deliver a message to someone, convince someone that you're innocent."
 
-"Yes, that might work. You're right. If I can explain the death, then it will show that I'm innocent. Well, I can tell you right now that hte bottles the held the potions were very exotic, and not from here."
+"Yes, that might work. You're right. If I can explain the death, then it will show that I'm innocent. Well, I can tell you right now that the bottles the held the potions were very exotic, and not from here."
 
 "How do you know?"
 
@@ -1784,7 +1784,7 @@ Manan thought of a good lie, "Maybe if you tell me, then I can try to deliver a 
 
 "Saw them?"
 
-"Yes, I was there when the body was searched and investigated. I was not arrested until we returned to the castle." This did seem like particuarly cruel treatment.
+"Yes, I was there when the body was searched and investigated. I was not arrested until we returned to the castle." This did seem like particularly cruel treatment.
 
 "And this has never happened before, this kind of death?"
 
@@ -1796,27 +1796,27 @@ Manan thought of a good lie, "Maybe if you tell me, then I can try to deliver a 
 
 "But it does not clear up where the water might have come from."
 
-"No, but it couldbe from anywhere. There are hundreds of travellers that pass through everythign from Water Women to slavers. It could be anyone."
+"No, but it could be from anywhere. There are hundreds of travelers that pass through everything from Water Women to slavers. It could be anyone."
 
 Manan left the apothecary as he was cataloging more possible sources for the water. As she left, she passed the guards who were charged to escort the alleged murder to the gibbet. The apothecaries screams and cries echoed in the hall. Manan cupped her hands over her ears tightly as she ran past rows and rows of cells. Up ahead she was cell door sitting ajar and slipped into the empty cell. She was shaking uncontrollably, overcome with shame and guilt that she had caused this seemingly innocent man to be killed. 
 
-She reasoned that she had not known any better. And all of the rumors she heard suggested that the ferryman had consumed all three bottles of the tonic. Perhaps he had consumed too much. She had mixed a powerful concotion. But there was nothing she had done that would have killed a man. But the water... There had been something strange about the water. She felt its effects before. It was not like typical water. It had power. The little girl in the cottage was healed by it. It had the power to give light and fill someone with light. A burning light that lit up her insides.
+She reasoned that she had not known any better. And all of the rumors she heard suggested that the ferryman had consumed all three bottles of the tonic. Perhaps he had consumed too much. She had mixed a powerful concoction. But there was nothing she had done that would have killed a man. But the water... There had been something strange about the water. She felt its effects before. It was not like typical water. It had power. The little girl in the cottage was healed by it. It had the power to give light and fill someone with light. A burning light that lit up her insides.
 
 As she sat there in the gloom of the empty cell, she began scanning the bottom of the walls. It was then that she noticed a slight gap at beneath one of the stones. Manan slid across the stone floor, clearing a path through the dry, broken straw that had been a former prisoner's bedding. Her fingers glided along the rough cut of stone, then into the gap. It was just big enough for two fingers to slide in. Inside, she felt a lever that wobbled as she touched it. 
 
 She dug her finger in further, gave an upward tug and and square section of the wall popped out. The square opening was at shoulder height. The heavy stones were attached to a metal frame and hung on hinges. Manan had to press her back into wall and push hard to open the door further. Inside, the passageway was dark. A cool breeze blew over her face. She stood for several minutes, contemplating this opening. It was there just as Quill had said it would be. She recalled the rest of the story. The passageway should lead her right to the wagon and the beast. She would be free by nightfall.
 
-Even through the thick stone wall, Manan could hear the crowd shouting outside. Mingled with this faint cry was a louder sound of the prison inmates, many of whom were watching from their own cells. Another round of shouts, horns blared, then more shouting. Manan knew that the deed had been done, and that the apothecary was swining from a rope right now.
+Even through the thick stone wall, Manan could hear the crowd shouting outside. Mingled with this faint cry was a louder sound of the prison inmates, many of whom were watching from their own cells. Another round of shouts, horns blared, then more shouting. Manan knew that the deed had been done, and that the apothecary was swinging from a rope right now.
 
 The time to flee was now. Manan hopped up into the passageway.  She reached back for the door and saw a thick rope attached to the metal frame. She grabbed the rope and pulled with all of her strength. After some exertion, the door thudded shut and the latch clicked again. Manan was in complete darkness, in a tunnel she hoped would lead to freedom.
 
 ***
 
-The passage did not take a straight course, and sloped generally sloped downards, as best as she could tell. She kept a steady pace, even though her knees were scraping and banging on the stone. She even grew used to the darkness. Suddenly, Manan nearly fell as the passageway turned down. She tried to feel out the empty space laying on her back with her feet. There was not way to go but down. She groped around for the edge of the passage. Her hands roved down and felt a rung of a ladder. She flipped over on her stomach and slid down into the void.
+The passage did not take a straight course, and sloped generally sloped downwards, as best as she could tell. She kept a steady pace, even though her knees were scraping and banging on the stone. She even grew used to the darkness. Suddenly, Manan nearly fell as the passageway turned down. She tried to feel out the empty space laying on her back with her feet. There was not way to go but down. She groped around for the edge of the passage. Her hands roved down and felt a rung of a ladder. She flipped over on her stomach and slid down into the void.
 
 One by one, her feet searched out and found each ladder rung. One she got her hands fixed on them, she began her descent. The passageway grew smaller and Manan could feel the stone scratching at her back. The ladder was metal and cold in the darkness. But Manan held on tight and kept placing one foot after the other, one hand after the other.
 
-When the ladder ended, she could not feel any ground beneath her feet. There was nothing to see either. She tried to stretch her foot as far as it could go, but nothing. She tried to stretch further but her grip loosend and she fell. But landed hard on a compacted dirt floor. She could stand now, but barely.
+When the ladder ended, she could not feel any ground beneath her feet. There was nothing to see either. She tried to stretch her foot as far as it could go, but nothing. She tried to stretch further but her grip loosened and she fell. But landed hard on a compacted dirt floor. She could stand now, but barely.
 
 The path forked several times. Manan alternated her paths, left then right. She did not want to end up walking a circle in the dark. The network of tunnels was vast. Manan was surprised that they were not guarded more closely. The tunnel became stone again and began to slope upwards. She must have cleared the central part of the system.
 
@@ -1824,15 +1824,15 @@ Up ahead, Manan could make out a dim light pouring into the tunnel. As she got c
 
 Climbing up in the pale light was easier than in the pitch dark. At the top of the ladder, she pressed her face to the grate to try to assess the scene, but could not make out anything. Up close she realized that the grate was partially covered with straw. She assumed that it opened into a stall of some sort. The smell of dung and animal hide was particularly strong now. 
 
-She gave the grate a weak shove with her free hand, but it barely budged. It was not particularly heavy, but too hard to move while clinging to a ladder. Instead she pressed her shoulder into and thrusted up with her legs. The grate liften wobbled that slid to the side. It made a thud in the dirt and straw, but that was all.
+She gave the grate a weak shove with her free hand, but it barely budged. It was not particularly heavy, but too hard to move while clinging to a ladder. Instead she pressed her shoulder into and thrust up with her legs. The grate lifted wobbled that slid to the side. It made a thud in the dirt and straw, but that was all.
 
-Manan peered up over the floor. She was right about the tunnel opening into a stall. Daylight was fading, and the stable was dim and shadowy. Manan lifted herself up and out and crawled into the shadows. She creeped forward and looked around. In the center of the stables, she could see the wagon. The beast, she hoped was nearby. But would she be able to hitch the wagon up and leave without being noticed?
+Manan peered up over the floor. She was right about the tunnel opening into a stall. Daylight was fading, and the stable was dim and shadowy. Manan lifted herself up and out and crawled into the shadows. She crept forward and looked around. In the center of the stables, she could see the wagon. The beast, she hoped was nearby. But would she be able to hitch the wagon up and leave without being noticed?
 
-Even pressed in the shadows as she was, Manan felt vunerable. She had no weapons, no smoking powders to blind an oppoent, none of her usual tools to protect herself. And yet there they all were hidden in the wagon's smuggling compartment. She decided that she had to make a dash for the wagon, and at least try to retrieve a knife. 
+Even pressed in the shadows as she was, Manan felt vulnerable. She had no weapons, no smoking powders to blind an opponent, none of her usual tools to protect herself. And yet there they all were hidden in the wagon's smuggling compartment. She decided that she had to make a dash for the wagon, and at least try to retrieve a knife. 
 
-She listened carefully, but did not hear anyone inside. Surely there was some stableboy tending to the animals, but maybe the execution had drawn everyone away. It was time to plunge forward, and so off she went, crouching low and quiet. A few of the animals, sensing her presence snorted or whined, but did not seem to make much of her being there.
+She listened carefully, but did not hear anyone inside. Surely there was some stable boy tending to the animals, but maybe the execution had drawn everyone away. It was time to plunge forward, and so off she went, crouching low and quiet. A few of the animals, sensing her presence snorted or whined, but did not seem to make much of her being there.
 
-She reached the wagon, climbed in and took in, with relief, the familiar sight of the wagon and its contents. A few cabinet doors were thrown open, but nothing seemed be distrubed. Obviously the soldiers had not relished the idea of plundering herbs and spices. Even the water jugs were still there. Sitting at the end, in particular, was the half full jug with water that Manan had used to make the ferryman's tonics, that she had sipped from, and administered as medicine to the little girl. 
+She reached the wagon, climbed in and took in, with relief, the familiar sight of the wagon and its contents. A few cabinet doors were thrown open, but nothing seemed be disturbed. Obviously the soldiers had not relished the idea of plundering herbs and spices. Even the water jugs were still there. Sitting at the end, in particular, was the half full jug with water that Manan had used to make the ferryman's tonics, that she had sipped from, and administered as medicine to the little girl. 
 
 Suddenly a powerful thirst overcame her. Her lips felt dry and cracked. She could try the water and see if it really was tainted and dangerous. Just a sip would slack her thirst and put her mind at ease. She crouched down in the wagon's floor, and put her lips to the spout and began drinking freely. Once again the water coursed through her body, lighting her up, making her feel warm. Burning though? She was not sure. But she wanted more. She needed more. She would just let a few more drops drip in her mouth.
 
@@ -1846,7 +1846,7 @@ On the floor, overcome by the potent effects of the water, Manan looked up at a 
 
 "I'm Jory. And the man, who called him Quill, said that you would come. That I should watch for you."
 
-Manan struggled to sit up. Her body was on fire, but she her mind felt cloudy. The boy's face kept going in and out of focus. Did he say that he was Quill? Quill was not a boy, as he? Maybe he had been and he was so good at diguise that she thought he was an older man. She started to laught at the thought of being led here by a fuzzy faced boy. She trired to stand, but fell back and crashed into the side of the wagon, banging her head.
+Manan struggled to sit up. Her body was on fire, but she her mind felt cloudy. The boy's face kept going in and out of focus. Did he say that he was Quill? Quill was not a boy, as he? Maybe he had been and he was so good at disguise that she thought he was an older man. She started to laugh at the thought of being led here by a fuzzy faced boy. She tried to stand, but fell back and crashed into the side of the wagon, banging her head.
 
 The boy asked if she was okay, but she kept laughing. "You're Quill? You're just a boy! And I'm a mouse! I'm a mouse!"
 
@@ -1870,9 +1870,9 @@ The boy had disappeared and returned with something, a small bottle. He held it 
 
 "Yes."
 
-They alighted from the wagon. "Here, throw this over you." He handed her a rough spun blanket. It smelled of damp and horse. Follow behind me, but notto close, prentend like you're a beggar. Just keep your head down and watch where I go.
+They alighted from the wagon. "Here, throw this over you." He handed her a rough spun blanket. It smelled of damp and horse. Follow behind me, but not too close, pretend like you're a beggar. Just keep your head down and watch where I go.
 
-The town around the castle was densely packed and bustled, even at night. Near the stables, they passed through a market where the stalls were active with people buying and selling. Drink flowed freely from the taverns. Soldiers seemed to be everywhere. Some patroling the streets, others engaged in the various entertainments the town offered.
+The town around the castle was densely packed and bustled, even at night. Near the stables, they passed through a market where the stalls were active with people buying and selling. Drink flowed freely from the taverns. Soldiers seemed to be everywhere. Some patrolling the streets, others engaged in the various entertainments the town offered.
 
 A few people passing by acknowledged Jory with a nod or wave. No one made much notice of Manan. She blended into the scene as all of the other cripples and beggars did. Each time they turned into a new street, it seemed that there were more rattling cups, more street performers cajoling the crowds for money. 
 
@@ -1906,9 +1906,9 @@ Quill looked a Jory then responded calmly, "I can't just leave, Manan. Not witho
 
 Manan realized that Quill would not budge. They climbed back into the tunnels. No with Quill leading them, they flew through the tunnels, even with Quill's injuries. He seemed to know where each bend would take them. Within minutes, they were climbing back out. Jory didn't follow them, and disappeared back into the tunnels.
 
-Quill didn't need to tell her to be quiet. The hush in the coordior was enough to enforce her silence. She even tried to control her breathing, feeling certain that each inhalation would be heard by someone.
+Quill didn't need to tell her to be quiet. The hush in the corridor was enough to enforce her silence. She even tried to control her breathing, feeling certain that each inhalation would be heard by someone.
 
-The cooridor turned and they stopped. Quill peered around the corner. He held up two fingers to indicate that two guards were posted at the door. Manan wondered how they were going to get past the door. She only had her dagger and would be no match for two armed men. But then an explosion drew the guards attention. Someone shouted out "Fire!" and they left their post. 
+The corridor turned and they stopped. Quill peered around the corner. He held up two fingers to indicate that two guards were posted at the door. Manan wondered how they were going to get past the door. She only had her dagger and would be no match for two armed men. But then an explosion drew the guards attention. Someone shouted out "Fire!" and they left their post. 
 
 Quill and Manan slipped around the corner then into Lord Corby's chambers. A large bed sat in the middle of the room, enclosed by lush, embroidered drapes. From the bed, Manan heard a droning sound and realized it was a man moaning in his sleep. Quill motioned for the bottle, which Manan handed to him.
 
@@ -1926,15 +1926,15 @@ He padded to the bed, drew back the curtains.
 
 "The chance to start over." Manan could hear struggling in the bed. The curtains parted back and Quill had his brother in a tight grip. He drew something from a pouch and stuck his brother in the arm. Within seconds, the struggling stopped, and Lord Corby feel into a peaceful sleep. Quill lay his head back on the pillows, then pulled him up into a sitting posture.
 
-He unstoppered the bottle of water that Manan gave him. Another explosion went off, this one louder than the first. It shook the castle. Manan went to the windows and looked out. At the far edge of the town, a building was burning, lighting up the night sky. She could hear shouting below, and what sounded like fighting.
+He unstopped the bottle of water that Manan gave him. Another explosion went off, this one louder than the first. It shook the castle. Manan went to the windows and looked out. At the far edge of the town, a building was burning, lighting up the night sky. She could hear shouting below, and what sounded like fighting.
 
-When she looked back, Quill was administering the water to his brother. The body began to singe and the smell of burning flesh filled the room. Lord Corby was no more, just a corpose, burned from the inside out by the water she drew and gave to Quill.
+When she looked back, Quill was administering the water to his brother. The body began to singe and the smell of burning flesh filled the room. Lord Corby was no more, just a corpse, burned from the inside out by the water she drew and gave to Quill.
 
 ***
 
 The castle and town were thrown into chaos by the explosions, fires, and fighting. Already mobs were roving the streets, looting stocks of weapons, food, and clothing. Quill and Manan slipped through the streets unnoticed, just some of the many people that were skirting from this place to that, trying to avoid being entangled in anything complicated.
 
-Manan felt confused by what exactly had happened. Had she just taken part in an assination? She wasn't entirely sure how the water had killed him so quickly, but she saw him writhing in pain and burning. She imagined the same thing happened to the ferry man. But she had had the water, why was she not affected the same way? But she had only had dribbles of it, small sips and doses. Was that the difference? Was there something else at work?
+Manan felt confused by what exactly had happened. Had she just taken part in an assassination? She wasn't entirely sure how the water had killed him so quickly, but she saw him writhing in pain and burning. She imagined the same thing happened to the ferry man. But she had had the water, why was she not affected the same way? But she had only had dribbles of it, small sips and doses. Was that the difference? Was there something else at work?
 
 By the time they reached the stables, though, she wasn't feeling well. Her skin was hot and prickly. Sweat beaded along her brow even as she kept wiping it away. She was able to keep on her feet though, and decided that the night's stress was getting to her. She helped Quill harness the beast to the wagon and prepare for their escape.
 
@@ -1952,7 +1952,7 @@ She snapped to attention, realizing that she had been in a daze. "Yes, I'm sorry
 
 "Just that we need to leave. Get on."
 
-They huddled undernearth blankets to disguise themselves since there was still a chance that Master Trent and his men were part of the melee overtaking the city. They could be seized and dispatched very easily in the chaos. Manan hoped that the beast wouldn't panic in the streets. But as usual it seemed very self possessed and calm. It bent his large shaggy head down low and drew the wagon along with it.
+They huddled underneath blankets to disguise themselves since there was still a chance that Master Trent and his men were part of the melee overtaking the city. They could be seized and dispatched very easily in the chaos. Manan hoped that the beast wouldn't panic in the streets. But as usual it seemed very self possessed and calm. It bent his large shaggy head down low and drew the wagon along with it.
 
 Even though they were such an easy target, no one took notice of them, allowing them to reach the city gates without even a wayward glance. The gates were only guarded by a dead guard who had been gutted with a field knife and left to die. A few weapons lay on the ground indicating that the remaining guards had dropped their weapons and run.
 
@@ -1990,9 +1990,9 @@ The sand and dust got everywhere. In her eyes, her nose, her mouth. In the creas
 
 The slavers kept her isolated in a small cage. She was transferred from a larger one when the other slaves complained bitterly about being burned by her. One superstitious woman, who couldn't keep her rags covering her and went mostly naked, decried Manan as a witch who would blight them all. In the oppressive climate of the flat lands, it was easier even for the slavers to simply relocate Manan.
 
-It took her several days to fully recover from the sedative that Quill had jammed into her arm. When she woke, the slaver and his wife had already joined up with a larger caravan. After observing for a few days, Manan realized that her slaver was a a small time operator, who seemed to work on contract for the man that led the column, a man she only saw once. He had a dark, closely shaved beard and belly that hung out in all directions. He never spoke to her, or to anyone, but he clearly seemd to be in charge.
+It took her several days to fully recover from the sedative that Quill had jammed into her arm. When she woke, the slaver and his wife had already joined up with a larger caravan. After observing for a few days, Manan realized that her slaver was a a small time operator, who seemed to work on contract for the man that led the column, a man she only saw once. He had a dark, closely shaved beard and belly that hung out in all directions. He never spoke to her, or to anyone, but he clearly seemed to be in charge.
 
-His power stemmed, in no small part, from the handful of giants that he employed the guard the train. Manan had never seen men so large, they must have stood eight or nine feet tall. They hardly wore clothes themselves, making them look like visitors from another time. The giants covered their skin in brands, like stock animals, as well. Manan had only been able to study one giant's tatoos. They seemed to be designs of some sort, probably intended to ward off evil, assuming that they had placed the brands there voluntarily.
+His power stemmed, in no small part, from the handful of giants that he employed the guard the train. Manan had never seen men so large, they must have stood eight or nine feet tall. They hardly wore clothes themselves, making them look like visitors from another time. The giants covered their skin in brands, like stock animals, as well. Manan had only been able to study one giant's tattoos. They seemed to be designs of some sort, probably intended to ward off evil, assuming that they had placed the brands there voluntarily.
 
 All other information was lost to the burning sick feeling she felt. She wondered if this was how Ethne had felt when she began to be consume by fire. Even though Manan's aliment could have been any number of sicknesses, she convinced herself that she "had" what Ethne had. That her body too would becoming a flame, barely contained by skin, passing from her to everything around her if she wasn't careful.
 
@@ -2000,9 +2000,9 @@ One day she grabbed on the bars of her cage tightly. The metal grew warm under h
 
 Even though she was probably falling under this curse, Manan felt close the Ethne because of it and the though comforted her. The distance between them had been painful and awkward. Ethne's infantalism had challenged Manan and made her plans more complicated. But now were they ever to meet, they could engage each other as something more like equals. Strangely, Manan hoped she would get that chance, even though the odds were slim that she would ever see anyone that she knew again.
 
-Night time proved to be the worse time, not so much for her but for entire crop of slaves being sent across the flat lands. The temperatures dropped as soon as the sun fell in the sky. Huddled togthere, the slaves in the other cages could only get so warm dressed in their rags. Manan didn't concern herself with the temperature at all. The day time heat proved to be more of a challenge for her. But by night the exhausted, hungry slaves began their laments and cries. Some times they would even send up animal like howls, crowding out the real sounds of coyotes and birds and other creatures.
+Night time proved to be the worse time, not so much for her but for entire crop of slaves being sent across the flat lands. The temperatures dropped as soon as the sun fell in the sky. Huddled together, the slaves in the other cages could only get so warm dressed in their rags. Manan didn't concern herself with the temperature at all. The day time heat proved to be more of a challenge for her. But by night the exhausted, hungry slaves began their laments and cries. Some times they would even send up animal like howls, crowding out the real sounds of coyotes and birds and other creatures.
 
-Each day it seemed that a fresh body was being dumped by the side. Manan began to lose track of how many starved, parked, striken looking faces she saw staring up dead into the sun. The other slaves stopped weeping after the third or fourth one. In fact, Manan could hear grumbling coming from the other cages. A death meant a slow down, which meant more time spent in captivity in this wretched place. As soon as the caravan moved on, Manan would look back at the bodies. It never took long for the birds to spot the fresh meal and begin their ministrations over the dead.
+Each day it seemed that a fresh body was being dumped by the side. Manan began to lose track of how many starved, parked, stricken looking faces she saw staring up dead into the sun. The other slaves stopped weeping after the third or fourth one. In fact, Manan could hear grumbling coming from the other cages. A death meant a slow down, which meant more time spent in captivity in this wretched place. As soon as the caravan moved on, Manan would look back at the bodies. It never took long for the birds to spot the fresh meal and begin their ministrations over the dead.
 
 ***
 
@@ -2010,29 +2010,29 @@ Apparently, the flat lands weren't just a horrid desolate landscape. The caravan
 
 The slaves weren't so lucky. The drivers parked the trains just outside the cool shady relief of the oasis. One man grew hysterical in the hot sun, hearing the laughter mingling with the dripping, slashing sounds the slavers made in a wading pool. This undone slave began banging himself against the bar of his cage, banged and banged until his face dripped in blood. Finally one of the giant guards pull the man out, broke his back, and flung him onto the hot sand for the birds.
 
-Silence fell over the camp. However desperate they might be, none of the slaves wanted to meet this same fate. Their numbers were dwindling. Manan wondered if the slavers were concerned about losing too many bodies during the trip. But she reasoned that they must pad the numbers. They certainly knew their business well enough to factor in the spoilation of their stock.
+Silence fell over the camp. However desperate they might be, none of the slaves wanted to meet this same fate. Their numbers were dwindling. Manan wondered if the slavers were concerned about losing too many bodies during the trip. But she reasoned that they must pad the numbers. They certainly knew their business well enough to factor in the spoliation of their stock.
 
-Manan did her best to protect herself from the sun. She tried to fold herself inside her rags and create some shade. Her skin had gone from bright red to a deep bronzy color over the last few weeks. Now that her skin had settled its color, she noticed that the caravan leader often rode alongside her cage, casting glances at her. It wasn't clear what these glances meant until that night by the oasis when a giant guard opened her cage. Too tired to fight, Manan slid out of the cage and followed the giant.
+Manan did her best to protect herself from the sun. She tried to fold herself inside her rags and create some shade. Her skin had gone from bright red to a deep bronze color over the last few weeks. Now that her skin had settled its color, she noticed that the caravan leader often rode alongside her cage, casting glances at her. It wasn't clear what these glances meant until that night by the oasis when a giant guard opened her cage. Too tired to fight, Manan slid out of the cage and followed the giant.
 
 With these guards, the slavers didn't bother shackling the slaves. The giants' stride covered and two or three of her normal steps. They here huge but incredibly quick. She had seen one guard overtake a horse that bolted from the train. The horse ran at full tilt but the guard caught it and reined in the beast. The horse looked like a toy pony as the guard led it back to the group.
 
-So Manan swayed and dragged herself along as the giant kept watch over her, just a few steps behind. The sand, which cut and scraped her when it blew across her cage, felt warm and inviting under her bare feet. She wanted to dig her feet deeply into it and be a part of the warmth. Only there was no time to puase, the guard prodded her back with a stick, compelling her forward, towards the house in the oasis.
+So Manan swayed and dragged herself along as the giant kept watch over her, just a few steps behind. The sand, which cut and scraped her when it blew across her cage, felt warm and inviting under her bare feet. She wanted to dig her feet deeply into it and be a part of the warmth. Only there was no time to pause, the guard prodded her back with a stick, compelling her forward, towards the house in the oasis.
 
 The slavers traveled as a large party. The slavers brought their retinues with them, large parties to tend to them, entertain them, and pleasure them. Manan had heard evidence of the pleasuring many nights coming up from the wagon train. Sometimes even from the slave cages, though the guards quickly broke up these lapses into self-indulgence.
 
 As they entered the oasis, Manan could heard wild birds singing and what seemed to be monkey howling. Lizards darted across the foot path that led to the house. The house was built from logs, and was low and flat with a pitched roof. A porch wrapped around the house on all sides. Bodies seemed to fill up the porch. Closer to the house, talking and laughter drowned out the wild sounds of animals in the oasis.
 
-The guard led her around to the back of the house to the kitchens. A small staff who must have lived here because Manan did not recognize them, were busily preparing food and running it back and forth to the party. A few eyes travelled over her as she passed through the kitchen, through another series of doors and into a bed chamber. Those eyes were filled with lust and desire, but it was all looks and glances. The guard pointed a spill of pillows in teh middle of the room and grunted, "Wait!" He stooped back down and left her there, alone.
+The guard led her around to the back of the house to the kitchens. A small staff who must have lived here because Manan did not recognize them, were busily preparing food and running it back and forth to the party. A few eyes traveled over her as she passed through the kitchen, through another series of doors and into a bed chamber. Those eyes were filled with lust and desire, but it was all looks and glances. The guard pointed a spill of pillows in the middle of the room and grunted, "Wait!" He stooped back down and left her there, alone.
 
-Even though she was young, Manan knew what happened between men and women, and sometimes men and men or women and women, in bedrooms like this. Her adopted sorcesses mother had been very open with her affections and liked bawdy stories too. She had never felt it herself, but Manan knew that desire animated much of the world around her. She guessed that tonight was to be her intitation into that world.
+Even though she was young, Manan knew what happened between men and women, and sometimes men and men or women and women, in bedrooms like this. Her adopted sorceress mother had been very open with her affections and liked bawdy stories too. She had never felt it herself, but Manan knew that desire animated much of the world around her. She guessed that tonight was to be her initiation into that world.
 
 She didn't anticipate that the room would fill up with people, followed by the lead slaver himself. He was much shorter than Manan had expected. The size of his guards seemed to compensate for this own lack of stature. He was corpulent and red faced, clearly drunk and well fed tonight. His stringy black hair was pulled back tightly. The crowd parted as he walked in and the whispers and chatting stopped. The crowd, men and women alike, looked over, examined her. Such was the life of a slave, Manan thought.
 
-A woman stepped from the crowd, an elegant brown skinned woman. Manan's skin was almost as dark and bronzy as her's but not quite. The woman smelled like coriander and nutmeg. Her skin glistened and seemed moist. The very moistness of her skin made Manan feel dry and brittle by comparison. The woman circled her, nodded, then said, "You're not pretty, are you?"
+A woman stepped from the crowd, an elegant brown skinned woman. Manan's skin was almost as dark and bronze as her's but not quite. The woman smelled like coriander and nutmeg. Her skin glistened and seemed moist. The very moistness of her skin made Manan feel dry and brittle by comparison. The woman circled her, nodded, then said, "You're not pretty, are you?"
 
-Was she supposed to respond? Manan chose not to. She didn't answer, and hung her head down. The woman titled her head up with a smoother finger under her chin. "Speak up girl," croacked the craggy slaver that had captured her in the woods.
+Was she supposed to respond? Manan chose not to. She didn't answer, and hung her head down. The woman titled her head up with a smoother finger under her chin. "Speak up girl," croaked the craggy slaver that had captured her in the woods.
 
-"No, mam, I'm not."
+"No, ma'am, I'm not."
 
 "No, your're not pretty, but you are strong and well made. I approve."
 
@@ -2052,9 +2052,9 @@ She backed away as the slaver drew closer. She flinched when he reached out to b
 
 The slaver seemed compelled by this argument. He waved the crowd away. They didn't move until he grunted, "Go!" With that they shuffled out. Only the woman remained. "Please not her too. Please." The slaver nodded and the woman left.
 
-Alone, Manan could feel the heat just below the surface of her skin. Even as she stood there naked in the room, she could feel sweat beaded up under her arms. She changed her look from the pitiful, whimpering one to a mischevious one. She laughed then began to dart around the room. She let the slaver grab her, then slipped away again. She was must faster than him, but tempered her movements to let him catch up. 
+Alone, Manan could feel the heat just below the surface of her skin. Even as she stood there naked in the room, she could feel sweat beaded up under her arms. She changed her look from the pitiful, whimpering one to a mischievous one. She laughed then began to dart around the room. She let the slaver grab her, then slipped away again. She was must faster than him, but tempered her movements to let him catch up. 
 
-When she had him completley engaged in the thrill of pursuit, she darted for the door. Surprisingly, it gave way and she passed throough, careful to keep up the laughter. She stopped and gave the slaver a smile. He understood the game and came after her. She darted through the ktichens naked and into the cool night shade in the oasis.
+When she had him completely engaged in the thrill of pursuit, she darted for the door. Surprisingly, it gave way and she passed through, careful to keep up the laughter. She stopped and gave the slaver a smile. He understood the game and came after her. She darted through the kitchens naked and into the cool night shade in the oasis.
 
 She veered off into the trees, brushing past the sharp blades of whatever exotic plants had been planted here. The palm trees hung low to the ground. She splashed through little rill of water, stopped and made sure that the slaver was chasing here. He huffed and puffed after her, but there he was. 
 
@@ -2078,7 +2078,7 @@ The whine of the arrows had stopped now that she was out of range. A spear came 
 
 She decided to make her stand now rather than tire herself out more by running. She hunched down, clutching the spear in her hands. The guard with the hammer was faster and had outpaced the other one. Manan saw now that the one with the small sword had an arrow lodged in his thigh. The wound bled and obviously hurt enough to slow the giant down.
 
-She grabbed a handful of sand, clutched it tight and charged at the guard. In a glittering spray, she tossed the sand, which had grown hot in her hand. It blinded the guard and sizzled on his skin. With that guard distracted, Manan changed her plan and charged right for the wounded one. She faked left, causing the guard to swing wildly in that direction. With his right side exposed, Manan plunged the spear into his side. She turned it, then leapt back, yanking the spear form his side as he swung the sword wildly at her. 
+She grabbed a handful of sand, clutched it tight and charged at the guard. In a glittering spray, she tossed the sand, which had grown hot in her hand. It blinded the guard and sizzled on his skin. With that guard distracted, Manan changed her plan and charged right for the wounded one. She faked left, causing the guard to swing wildly in that direction. With his right side exposed, Manan plunged the spear into his side. She turned it, then leaped back, yanking the spear form his side as he swung the sword wildly at her. 
 
 The other guard came at her with the warhammer. He leaped up and brought the warhammer crashing down. Manan dived forward, rolling under the giant. The hammer thudded into the sand. Manan leaped onto the giant back and dug her fingers into his eyes. She channeled all of her heat into his squishy eyes. Blinded and enraged, the giant whirled about, kicking up sand around him. Blinded, he veered away from them, fumbling to find his target.
 
@@ -2089,23 +2089,23 @@ Covered in blood, Manan went stalking the other giant. She crept up behind him a
 
 ##Chapter 16##
 
-Manan walked and walked past the point of believing she could walk farther. She had gone for several days with no water, only squeezing juices from succulents that clung to the life in the flat lands. A few skinny lizards, the dead remiains of an animals that the other animals had picked over and left. This was all that sustained her in her long march to somewhere.
+Manan walked and walked past the point of believing she could walk farther. She had gone for several days with no water, only squeezing juices from succulents that clung to the life in the flat lands. A few skinny lizards, the dead remains of an animals that the other animals had picked over and left. This was all that sustained her in her long march to somewhere.
 
 Even though she was starved and thirsty and heading nowhere in particular, Manan dragged herself farther and farther along. She would have to run into something at some point, even if it was more slavers. Just marking some end point would be satisfaction enough.
 
 The will to move was strong and it moved her, but she couldn't have said what sustained her. Her memory was empty. Her mind was too strained to flash through pleasant scenes in her past. Besides, there were none. Where were the loving smiles or kind words that could have floated before squinting eyes and called her on. There was none of this. Just the sheer will to move. In that, she was not much different from those lizards she munched on, or the birds that circled overhead. They wanted to live, but didn't drown themselves in the particulars of that.
 
-She was so determined to press on, that she almost didn't realize that she was approaching a convoy in the distance. In fact, she nearly trudged right past them like a wound up machine, just placing one foot in front of the next with no thought as the whys and wherefors of doing so. But when she felt a blanket behind passed around her shoulders, she collapsed in the strong arms that lifted her and placed her in a wagon.
+She was so determined to press on, that she almost didn't realize that she was approaching a convoy in the distance. In fact, she nearly trudged right past them like a wound up machine, just placing one foot in front of the next with no thought as the whys and wherefores of doing so. But when she felt a blanket behind passed around her shoulders, she collapsed in the strong arms that lifted her and placed her in a wagon.
 
-The delerium that overtook her was powerful. Disoriented, she could snap awake, feel utterly confused about where she was, then slip back into a daze. It was clear that she was riding in a wagon, but it didn't seem to be a cage. There was something uniquely familiar about it. Familiar, but not entirely the same. Maybe it was the smell, or the colors she saw. Some kind of pattern that harkened back to something she knew. Not the sentiemtnal things she had passed over in the desert, but something real and immediate from the life she had staked out for herself.
+The delirium that overtook her was powerful. Disoriented, she could snap awake, feel utterly confused about where she was, then slip back into a daze. It was clear that she was riding in a wagon, but it didn't seem to be a cage. There was something uniquely familiar about it. Familiar, but not entirely the same. Maybe it was the smell, or the colors she saw. Some kind of pattern that hearkened back to something she knew. Not the sentimental things she had passed over in the desert, but something real and immediate from the life she had staked out for herself.
 
 Manan realized how warm everything was, how warm she was. Her own skin was hot to the touch. She also noticed that was wrapped in very thick fabric much like that that Ethne had worn. These facts meant something but she fell under the spell of the wagon's ceaseless jostling. Lulled to sleep, Manan left off deciding what these things meant.
 
-Whether half awake or asleep the sounds of the wagons--the rattle and clang of wheels rolling in their housings, or tools jostling in their lashings--persisted. Beasts grunted. Their hooves scraped at the sandy landscape. Insects hopped aboard too from time to time, buzzing and crawling about. She had spent at least an hour one day watchign a spider traverse the top of the wagon.
+Whether half awake or asleep the sounds of the wagons--the rattle and clang of wheels rolling in their housings, or tools jostling in their lashings--persisted. Beasts grunted. Their hooves scraped at the sandy landscape. Insects hopped aboard too from time to time, buzzing and crawling about. She had spent at least an hour one day watching a spider traverse the top of the wagon.
 
 There also was a face, sometime just pieces of it. Eyes that peered out from a head wrap. A grim mouth that never smiled. The face was strong and broad, belonged to a woman, decorated with dark curling hair. The nose was broad, the lips thin. It wasn't an old face, but clearly not young either. Crows feet radiated out from the dark eyes, creasing deeply when the face was bent on doing something. The face wasn't always there. Just sometimes to give her water or food, usually some kind of sloppy cereal or smashed grains. 
 
-These were the fragments of senation that marked Manan's life for many days in that wagon.
+These were the fragments of sensation that marked Manan's life for many days in that wagon.
 
 ***
 
@@ -2113,21 +2113,21 @@ Finally the day came when she could sit up and open her eyes without feeling lik
 
 The inside of the wagon was dim and through a slit in the wagon's canvas covering, Manan could just make out the long rays of light marking the end of the day. Outside, the could hear voices and people moving about working. Manan started to crawl towards the opening, wanting to look outside directly. Her body, weak and malnourished revolted at first, but finally gave in to the idea of motion and strain.
 
-She pulled back the canvas and felt a cool nighttime breeze on her skin. She had never been so aware of each element that made up the world, of smells, of light, of feeling of the air itself. Yet all of this sensory information came to her at once. It was overwhleming, but exhilirating too. She swung her legs around and let them dangle over the back fo the wagon for a moment. Her hands clutched at the sides, hunching up her shoulders.
+She pulled back the canvas and felt a cool nighttime breeze on her skin. She had never been so aware of each element that made up the world, of smells, of light, of feeling of the air itself. Yet all of this sensory information came to her at once. It was overwhelming, but exhilarating too. She swung her legs around and let them dangle over the back of the wagon for a moment. Her hands clutched at the sides, hunching up her shoulders.
 
 When she pushed herself down the ground, her legs gave out underneath her. She toppled into the sand and rolled on her back. There was no real pain and she didn't feel herself to be danger. Rather than a cry, she started to laugh, and couldn't stop laughing even when the face appeared over her.
 
-The face frowned then bended closer to her to pick her up. Manan could feel the same powerful hands as before scopping under her, pulling her up, but she muttered, "No, just leave me, please." So, the hands relinquished their grip and returned her to the ground.
+The face frowned then bended closer to her to pick her up. Manan could feel the same powerful hands as before scooping under her, pulling her up, but she muttered, "No, just leave me, please." So, the hands relinquished their grip and returned her to the ground.
 
-She couldn't feel the warmth radiating from the ground exactly, besides which that warmth was quickly retreating further down as the night got colder. But the solidy of the ground comfroted her. It was nice to not be rocking and bouncing endlessly.
+She couldn't feel the warmth radiating from the ground exactly, besides which that warmth was quickly retreating further down as the night got colder. But the solidity of the ground comforted her. It was nice to not be rocking and bouncing endlessly.
 
 She closed her eyes, smiling, and said, "Where are we?"
 
-"A waypoint for travelers. The beasts are being watered and fed."
+"A way point for travelers. The beasts are being watered and fed."
 
 "Are you a slaver?"
 
-The face started to laugh as well, a deep booming laught, "A slaver? No, not a slaver."
+The face started to laugh as well, a deep booming laugh, "A slaver? No, not a slaver."
 
 "A merchant then?"
 
@@ -2137,7 +2137,7 @@ The face started to laugh as well, a deep booming laught, "A slaver? No, not a s
 
 "Yes, that is it. A water woman, as are my companions."
 
-"And I found you? I found your caracan out there?"
+"And I found you? I found your caravan out there?"
 
 "Somehow you did. And here you are. A strong girl, we all agree." There was a tone of hesitation in the woman's voice, but Manan was happy not to probe into it further. "Come. You should return to the wagon."
 
@@ -2149,7 +2149,7 @@ The powerful hands returned, lifting her to her feet. Manan could feel them adju
 
 The woman sat her on her feet. Manan wobbled. Her dressings weren't very tight, but they clung to her enough to not trip her up. She made a few steps, then a few more after that. She kept her eyes trained on her feet and wasn't aware that a group of people were watching her. When she noticed them, Manan found herself face to face with eight woman, all of them powerful and tall like this woman and like the Water Woman had been. Some were dark and broad like the woman tending to her. Others were fairer. She saw fierce death defying looks, passive and uninterested looks, but a few smiles too.
 
-One of the women, older than the others, stepped forward and said, "We are glad to see that you are well." Manan stopped her pacing and bowed her head, bending sligltly at the knee. "Do you know who we are?"
+One of the women, older than the others, stepped forward and said, "We are glad to see that you are well." Manan stopped her pacing and bowed her head, bending slightly at the knee. "Do you know who we are?"
 
 "The water women..."
 
@@ -2181,7 +2181,7 @@ Manan nodded again. The shape of her current situation was coming into view. She
 
 The caravan finally cleared the flatlands. The party stopped for a day to rest and replenish their supplies at a small market town that existed on the precipice of the waste. From there, the woman made for the coast, veering west as the did so. 
 
-Manan was never able to ride in the open, so she didnt' see much of the scenery they passed. but the land was gentle and rolling now. Sometimes they travelled through woods, but mostly in the open air. She didn't see the other women assembled in a group. No one looked in on her besides the woman who tended to her.
+Manan was never able to ride in the open, so she didn't' see much of the scenery they passed. but the land was gentle and rolling now. Sometimes they traveled through woods, but mostly in the open air. She didn't see the other women assembled in a group. No one looked in on her besides the woman who tended to her.
 
 "Whose wagon is this?"
 
@@ -2223,7 +2223,7 @@ Manan was never able to ride in the open, so she didnt' see much of the scenery 
 
 "K has declared that you are under her protection. She is an elder among us and her opinion holds sway. But your protection rests on her. I saw this not to burden you with an obligation, but to make clear the situation." Manan understood how tenuous these bond of obligation were. After all, she had taken Ethne into her protection. That hadn't ended well for either of them. "Try not to think over this too much, Manan. The water woman have a saying, 'Rivers flow in one direction.' Let the past be the past. If there is a need to reckon with it, you will know and can be prepared for it."
 
-Manan had no choice but to accept this advice, which she took to mean, we'll give you ample warning if we're going to kill you. From the stern faces she had seen on the other sisters. She had no doubt that she would be cut down to preserve the water women's ways. Since there really was not pointin dwelling on this, she asked another question, "Where are we going?"
+Manan had no choice but to accept this advice, which she took to mean, we'll give you ample warning if we're going to kill you. From the stern faces she had seen on the other sisters. She had no doubt that she would be cut down to preserve the water women's ways. Since there really was not pointing dwelling on this, she asked another question, "Where are we going?"
 
 "Home. To our home."
 
@@ -2233,13 +2233,13 @@ Manan had no choice but to accept this advice, which she took to mean, we'll giv
 
 ***
 
-The sound of shouting woke Manan up. A man's voice. A woman's voice in response. Silence. The man's voice again. Then the woman's voice shouted back. This contined on for quite some time. She wondered if they were under attack, but decided that this couldn't be the case. Soon laughter and warm greetings replaced the laughter. Then she could hear horses trotting alongside them. "Val? Val? What's going on?"
+The sound of shouting woke Manan up. A man's voice. A woman's voice in response. Silence. The man's voice again. Then the woman's voice shouted back. This continued on for quite some time. She wondered if they were under attack, but decided that this couldn't be the case. Soon laughter and warm greetings replaced the laughter. Then she could hear horses trotting alongside them. "Val? Val? What's going on?"
 
-From up front, the water woman, whose name she learned was Val, shortened from Valeia, shouted back, "We've arrived. This is our escort." Manan later learned that the protections around the Water Women's home was elaborate. The guard, made up of the sons birthed to water women and those girls who were not destined to water women, provided the solidery that protected the land and the valuable springs. But their elaborate rituals also protected them. Any visitor approaching their home had to answer a series of questions as akind of call and response game, then was escorted into the home land.
+From up front, the water woman, whose name she learned was Val, shortened from Valera, shouted back, "We've arrived. This is our escort." Manan later learned that the protections around the Water Women's home was elaborate. The guard, made up of the sons birthed to water women and those girls who were not destined to water women, provided the soldiery that protected the land and the valuable springs. But their elaborate rituals also protected them. Any visitor approaching their home had to answer a series of questions as a kind of call and response game, then was escorted into the home land.
 
 They also had to cross a wide bridge that spanned the river, which had grown into a massive waterway by now. The bridge led to a tunnel, cut into the bluffs on the other side of the river. The tunnel led to a heavily fortified clearing area before the entering the water women's home. The area they entered wasn't so much a town or city, as much as it was a production and distribution facility. Water women resupplied and began their long journeys to deliver their coveted water throughout the world from here.
 
-The water women's home were spread out. Each woman lived on somethign like an estate, but Manan wouldn't learn of this till later. For now, they rode to the largest building in this place the water woman called home. When Val came to retrive her, she explained that this was the grand hall, the center of the water women's life. Rituals were performed here, governeance happened here. It was here that the water women's council met. There also was hospital and healers here to tend to the water women and protect them from harsh conditions they endured out in the world.
+The water women's home were spread out. Each woman lived on something like an estate, but Manan wouldn't learn of this till later. For now, they rode to the largest building in this place the water woman called home. When Val came to retrieve her, she explained that this was the grand hall, the center of the water women's life. Rituals were performed here, governance happened here. It was here that the water women's council met. There also was hospital and healers here to tend to the water women and protect them from harsh conditions they endured out in the world.
 
 Val led Manan to this area of the grand hall where the healers treated their patients. "You will stay here until the healers find you fit to leave."
 
@@ -2251,15 +2251,15 @@ They brought her to a room with a large pool filled with fragrant waters, steam 
 
 She stepped into the bath and sat on the stone seat embedded into the side. The bath was deep and enveloped her whole body. As she entered it, the water hissed and steamed even more, but stopped once the temperature normalized. The woman explained that this bath would relax her as well as clean her and that she should sit for as long as possible.
 
-Manan was able to sit in the bath for well over an hour, dunking her head periodically to rewet her hair. All of the filth from her journey floated aroudn her then settled. She reached for a brush to scrub her skin. She scrubbed and scrubbed at it vigorously, as if trying to wash away the sediment that her decisions had deposited on her. But no amount of scrubbing and cleansing would do that. She was what she was now. 
+Manan was able to sit in the bath for well over an hour, dunking her head periodically to wet her hair. All of the filth from her journey floated around her then settled. She reached for a brush to scrub her skin. She scrubbed and scrubbed at it vigorously, as if trying to wash away the sediment that her decisions had deposited on her. But no amount of scrubbing and cleansing would do that. She was what she was now. 
 
-She submerged herself in the deep pool, holding her breath, letting air bubbles escape and pop at the surface. Through the dense murk of the water, she thought she coudl hear someone saying her name, a familiar voice. She crashed up through the water, brushing back the water from her face. Openeing her eyes, she saw Ethne, glowing and glistening, there in her room.
+She submerged herself in the deep pool, holding her breath, letting air bubbles escape and pop at the surface. Through the dense murk of the water, she thought she could hear someone saying her name, a familiar voice. She crashed up through the water, brushing back the water from her face. Opening her eyes, she saw Ethne, glowing and glistening, there in her room.
 
 ##Chapter 17##
 
 "Is it really you?" Manan asked. She couldn't believe that after all this time that Ethne was here, so far from the mountains and the master. So far from the mess that she had made of her rescue. And yet here she was and now Manan felt that she was the one being rescued.
 
-"It is me. I'm here," Ethen replied.
+"It is me. I'm here," Ethne replied.
 
 "But how?"
 
@@ -2271,7 +2271,7 @@ She had not been the one to protect Ethne. But who was? "Manan? It's okay. I wil
 
 "Then it got easier. To kill them. I started to feel powerful. When I found that scary shadowy man, I killed him and then I killed the master too. They all just burned up with dry leaves under my touch. When I came into that bloody hall, dragging the master's black body in there, his followers stopped fighting and the others ran. Then the followers ran too."
 
-"I lived there by myself with all of those dead bodies until I couldn't stand the smell any longer. You were gone and I knew that you weren't coming back. So, I lit the whole place on fire. It was magnifient, Manan. You could see it burning for miles around. It was like a candle that burned so bright in the sky."
+"I lived there by myself with all of those dead bodies until I couldn't stand the smell any longer. You were gone and I knew that you weren't coming back. So, I lit the whole place on fire. It was magnificent, Manan. You could see it burning for miles around. It was like a candle that burned so bright in the sky."
 
 "I didn't know where to go, so I just started walking. I must have wandered into a farmer's field, because I woke up with a man poking me with a pitchfork. I tried to lie about being separated from my parents who were merchants, but I don't think he believed me. I couldn't make him believe me like you could have, Manan, even though I tried to remember how you do it. I begged him to let me stay in his barn, through the winter, but he refused. He would take me to his lord's house and I would have to find my parents from there."
 
@@ -2281,17 +2281,17 @@ She had not been the one to protect Ethne. But who was? "Manan? It's okay. I wil
 
 "They were regularly visited by a water woman, who was stopping to deliver water to them. This woman found me chained in the barn. She was very secretive about it, but told me that she would free me. When she left, she did free me. She tried to administer waters to me, made me drink tonics and administered salves, but nothing could stop the burning. It got better, I guess, but it wasn't going to go away. She seemed set on making me better though and I wondered why."
 
-"I started to understand a little bit when we came across two travellers on the road, nearly frozen to death. At least one of them was, a man and his daughter. Can you guess who they were, Manan?"
+"I started to understand a little bit when we came across two travelers on the road, nearly frozen to death. At least one of them was, a man and his daughter. Can you guess who they were, Manan?"
 
 Manan could, "The hunter and his daughter"
 
-Ethen nodded. "She was not feeling well when he returned. Her skin was too hot to the touch. She seemed like she was going to burn up the bed. It wasn't bad, but getting worse. He had tried bringing her back to the master's, but saw the ruins of it. I don't know if he tracked me or we met by accident. But there we were, staring at each other. He was so full of hate and despair, Manan. I felt that I was the cause of it, somehow, that by being near her I had caused this."
+Ethne nodded. "She was not feeling well when he returned. Her skin was too hot to the touch. She seemed like she was going to burn up the bed. It wasn't bad, but getting worse. He had tried bringing her back to the master's, but saw the ruins of it. I don't know if he tracked me or we met by accident. But there we were, staring at each other. He was so full of hate and despair, Manan. I felt that I was the cause of it, somehow, that by being near her I had caused this."
 
 "But she was probably the only thing keeping them alive and besides it wasn't you, not really."
 
 "I know that now..."
 
-"It was the water," another voice said, a man's voice. The hunter came into the room. He seemed thin and harrassed, like a shadow of his former self. He stood before them, tense, as if ready to spring into some kind of action. Manan could not tell what action that might be. She  wasn't sure if he was going to fall into her arms or kill her. 
+"It was the water," another voice said, a man's voice. The hunter came into the room. He seemed thin and harassed, like a shadow of his former self. He stood before them, tense, as if ready to spring into some kind of action. Manan could not tell what action that might be. She  wasn't sure if he was going to fall into her arms or kill her. 
 
 "The water," she repeated. 
 
@@ -2303,13 +2303,13 @@ Ethen nodded. "She was not feeling well when he returned. Her skin was too hot t
 
 "A traitor? I don't understand."
 
-"The water woman, our water woman," Ethen said. "She had been banished from the guild. She was no longer a part of them."
+"The water woman, our water woman," Ethne said. "She had been banished from the guild. She was no longer a part of them."
 
 "I don't fully understand myself," the hunter said. "But it seems she maintained a private well, but it was tainted, poisoned. Certain customers paid good money for this water because of its unusual effects."
 
 Manan tried to process this information, but couldn't. The water woman had saved them and protected them. And her beast. It was so pure and noble. How could it have been a part of this? "None of this makes sense," Manan said. "I don't understand."
 
-"I don't think the Water Women do either," the hunter said. "Not that they would admit to it. But they claim to want to care of us now, of you and Ethen and my daughter."
+"I don't think the Water Women do either," the hunter said. "Not that they would admit to it. But they claim to want to care of us now, of you and Ethne and my daughter."
 
 "Is she okay?" Manan asked.
 
@@ -2323,19 +2323,19 @@ Manan tried to process this information, but couldn't. The water woman had saved
 
 "But we're here now, Manan." Ethne said. She seemed much more comfortable with this knowledge than Manan felt at this moment. But she has had days to think over it, Manan thought. But she also wondered if she would ever reconcile herself with it. After all, she had taken up the Water Woman's mantle, and thus felt as much a perpetrator as a victim.
 
-No one could intercede and tell her that this wasn't the case. Even the hunter's calm, self possessed assurances, could not dispell the nagging, gnawing worry that Manan felt. But maybe it was the effects of her condition too, of the heat in her body, that seemed to agitate her even now, in the midst of this peaceful and harmonious scene.
+No one could intercede and tell her that this wasn't the case. Even the hunter's calm, self possessed assurances, could not dispel the nagging, gnawing worry that Manan felt. But maybe it was the effects of her condition too, of the heat in her body, that seemed to agitate her even now, in the midst of this peaceful and harmonious scene.
 
 ###
 
-Manan spent her days with Ethne and the hunter's daughter. The attendants in the hospital visited them frequently, offering a slew of potions, tonics, and salves. Every few days a nother person or two would appear, each of them suffering from similar complaints, in varying degrees of severity. The Water Women seemed to be forming a village of sick people, thought Manan.
+Manan spent her days with Ethne and the hunter's daughter. The attendants in the hospital visited them frequently, offering a slew of potions, tonics, and salves. Every few days a another person or two would appear, each of them suffering from similar complaints, in varying degrees of severity. The Water Women seemed to be forming a village of sick people, thought Manan.
 
-In fact they were. The Water Women's council had resolved to care for those affected by their wayward sister. They felt the need to close the wound that broke the sanctity of their codes and oath. Manan, using what wordly knowledge she had, also reasoned that the Water Women needed these people to disappear to not affect their trade. Without customers for their water, the Water Women would cease to exist.
+In fact they were. The Water Women's council had resolved to care for those affected by their wayward sister. They felt the need to close the wound that broke the sanctity of their codes and oath. Manan, using what worldly knowledge she had, also reasoned that the Water Women needed these people to disappear to not affect their trade. Without customers for their water, the Water Women would cease to exist.
 
 The council also resolved to seal the poisoned well. There was to be a ceremony the following day. A train of beasts and wagons would pitch wagon after wagon of dirt to close up the well and ensure that the Water Women did not peddle it again.
 
 Before they did, though. Manan felt compelled to see the well. She had gained enough strength to go walking everyday. Though the women and the guard kept an eye on their patients, they were not prisoners and were free to come and go as they pleased as long as they did not interfere with the Water Women's operations.
 
-So that evening, Manan walked and headed for the poisoned well. It was on the edge of the Water Woman's property, which had been abondoned after her explusion from the order. No one was permitted to live there again. Eventually the house would be torn down.
+So that evening, Manan walked and headed for the poisoned well. It was on the edge of the Water Woman's property, which had been abandoned after her expulsion from the order. No one was permitted to live there again. Eventually the house would be torn down.
 
 She found the well easily enough, it sat on a rise, outlined against the fading light in the sky. Roughly placed stones ringed a hole in the ground. The rigging that had drawn water up had toppled other. Manan could not tell if someone had destroyed it, or if it had fallen on its own. She sat on the well's edge, staring down into the long, dark shaft. 
 
@@ -2351,11 +2351,11 @@ She startled when she heard a voice say, "It's a sad story."
 
 "But my sister refused to give up the baby. She had a daughter, and kept her daughter hidden in a faraway place. I had my suspicions, but chose not to ask. Perhaps that was wrong of me. But it is too late to regret these small missteps after the path has been taken. My sister's daughter in turn bedded a man and was with child. She begged my sister to come home, to have her baby in the comfort of this place. But my sister refused."
 
-"Her daugther was just as stubborn as her and sneaked onto our land and into her mother's house. When she was discovered, her daughter left in despair and disappeared. I believed she threw herself in this well."
+"Her daughter was just as stubborn as her and sneaked onto our land and into her mother's house. When she was discovered, her daughter left in despair and disappeared. I believed she threw herself in this well."
 
 "And poisoned the water..." Manan added.
 
-"Yes. But she left the baby behind. My sister could not keep the child so she smuggled it out during her next journey. The water she carried kept the child peaceful so she gave it more and more. In a distant mountain town, she offered the child to a lord and lady. This lady was barren and happy to have a child. But when she learned that she was to give birth to her own child, a son, the baby girl was cast off. Only by then these people realized that this child was different, that she could produce incredibel amounts of heat. I still don't understand how it came to pass that she became a heat source for the town, but to someone's way of thinking, this was a kind of mercy."
+"Yes. But she left the baby behind. My sister could not keep the child so she smuggled it out during her next journey. The water she carried kept the child peaceful so she gave it more and more. In a distant mountain town, she offered the child to a lord and lady. This lady was barren and happy to have a child. But when she learned that she was to give birth to her own child, a son, the baby girl was cast off. Only by then these people realized that this child was different, that she could produce incredible amounts of heat. I still don't understand how it came to pass that she became a heat source for the town, but to someone's way of thinking, this was a kind of mercy."
 
 "And that's how I found Ethne," Manan said.
 
