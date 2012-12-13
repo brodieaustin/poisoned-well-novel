@@ -2,12 +2,6 @@
 layout: page
 title: The Poisoned Well
 ---
-#The Poisoned Well#
-
-{{ page.content | number_of_words }} words
-
-Go to [the last update](#update).
-
 ##Chapter One##
 
 The arrows, hurtled from the dark recesses of the trees, fell around them, skidding stupidly along the ice. Manan, running at full tilt, felt giddy and powerful and terrified all at the same time. The other girl, whose hand she gripped tightly, seemed less buoyed by the hail of flint, wood, and feather. Manan gave her a rough tug just before an arrow landed right at their heels. It bounced, tipped, and veered away. We may just make it, she thought, seeing the ice lake's shore just ahead.

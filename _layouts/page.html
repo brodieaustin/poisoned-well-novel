@@ -16,9 +16,79 @@
 		h1{margin-bottom: 0; font-size: 2.666em; line-height: 1.2em; text-align: center;}
 		h2{font-size: 1.666em; color: #888;}
 		hr{width: 80%; margin: 0 auto; border-top: 1px solid #ccc; border-bottom: 0;}
+		button{padding: 4px 8px; border: 0; background-color: #ccc; color: #333; font-family: inherit; font-size: inherit;}
+		button:hover{background-color: #eee;}
+		#save-bookmark{position: fixed; top: 0; right: .5em; margin: 0; }
+		.confirm{width: 100%; display: none; position: fixed; top: 0; left: 0;background-color: #f8f8f8;}
+		.confirm button{float: right; margin-right: 1em; }
+		#resume{padding-bottom: 1em;}
 	</style>
 </head>
 <body>
+	<header>
+		<h1 id='the_poisoned_well'>The Poisoned Well</h1>
+		<p>50360 words</p>
+		<p>Go to <a href='#update'>the last update</a>.</p>
+	</header>
+	<button id="save-bookmark">Bookmark</button>
+	<div class="confirm" id="resume">
+		<p>Do you want to pick up reading where you left off last time?</p>
+		<button id="confirm-ok">Ok</button>
+		<button id="confirm-cancel">Cancel</button>
+	</div>
+	<div class="confirm" id="saved">
+		<p>Bookmark saved</p>
+	</div>
+	<article>
 {{content}}
+	</article>
+	 <script src="//ajax.googleapis.com/ajax/libs/jquery/1.8.3/jquery.min.js"></script>
+ <script src="js/jquery.viewport.js"></script>
+ <script src="js/jquery.cookie.js"></script>
+ <script>
+ 	$(document).ready(function(){
+ 		
+ 		init();
+ 		
+ 		$('#save-bookmark').click(function(){
+ 			$('article p:in-viewport').each(function(){
+ 				$(this).addClass('reading');
+ 			});
+ 			$('article p:above-the-top').each(function(){
+ 				$(this).removeClass('reading');
+ 			});
+ 			
+ 			var i = $('article p').index($('.reading'));
+ 			
+ 			console.log(i);
+ 			$('article p').eq(i).attr('id', 'bookmark');
+ 			
+ 			$.cookie('bookmark', i);
+ 			
+ 			$('#saved').slideDown().delay(3000).slideUp();
+ 			
+ 			return false;
+ 		});
+ 		
+ 		function init(){
+ 			var i = $.cookie('bookmark');
+ 		
+	 		if (i){
+	 			$('#resume').slideDown();
+	 			$('#confirm-ok').click(function(){
+	 				$('article p').eq(i).attr('id', 'bookmark');
+	 				location.href = '#bookmark';
+	 				$('#resume').slideUp();
+	 			});
+	 			$('#confirm-cancel').click(function(){
+	 				$('#resume').slideUp();
+	 			});
+	 			
+	 			$.removeCookie('bookmark');
+	 		}
+ 		};
+ 		
+ 	});
+ </script>
 </body>
 </html>
