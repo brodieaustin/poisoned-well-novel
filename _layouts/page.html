@@ -13,14 +13,13 @@
 		body{margin: 0; padding: 0; font-size: 1.125rem; line-height: 1.6em; color: #333;}
 		header{background-color: #eee; padding: 1rem 2rem; overflow: hidden;}
 		header p{display: inline-block; margin-left: 1rem; font-size: .875rem;}
-		footer{margin-top: 1em; padding-top: 1em;font-size: 80%; text-align: center; border-top: 1px solid #aaa;}
+		footer{position: fixed; bottom: 0; width: 100%; padding: .5rem; background: #fff; text-align: center; border-top: 1px solid #aaa;}
 		article{max-width: 27em; margin: 3em auto; padding: 0 2rem;}
 		h1{display: inline-block; margin-bottom: 0; font-size: 1.25rem; line-height: 1.2em; text-transform: uppercase; letter-spacing: 1px;}
 		h2{margin-top: 6rem; padding-bottom: 1rem; margin-bottom: 3rem; font-size: 1rem; text-transform: uppercase; letter-spacing: 2px; border-bottom: 1px solid #333;}
 		hr{width: 40%; margin: 2rem auto; border-top: 1px solid #333; border-bottom: 0;}
 		button{cursor: pointer; margin-left: .5rem; padding: .75rem 1.5rem; border: 0; background-color: #ccc; color: #333; text-transform: uppercase; letter-spacing: 1px;}
 		button:hover{opacity: .7;}
-		.buttons{position: fixed; top: 1.5rem; right: 2rem;}
 		.confirm{width: 100%; display: none; position: fixed; top: 0; left: 0;background-color: #f8f8f8;}
 		.confirm button{float: right; margin-right: 1em; }
 		#resume{padding-bottom: 1em;}
@@ -32,10 +31,6 @@
 	<header>
 		<h1 id='the_poisoned_well'>The Poisoned Well</h1>
 		<p>50360 words | Go to <a href='#update'>the last update</a></p>
-		<div class="buttons">
-			<button id="night-mode">NightMode</button>
-			<button id="save-bookmark">Bookmark</button>
-		</div>
 	</header>
 	<div class="confirm" id="resume">
 		<p>Do you want to pick up reading where you left off last time?</p>
@@ -48,6 +43,12 @@
 	<article>
 {{content}}
 	</article>
+	<footer>
+		<div class="buttons">
+			<button id="night-mode">NightMode</button>
+			<button id="save-bookmark">Bookmark</button>
+		</div>
+	</footer>
 	 <script src="//ajax.googleapis.com/ajax/libs/jquery/1.8.3/jquery.min.js"></script>
  <script src="js/jquery.viewport.js"></script>
  <script src="js/jquery.cookie.js"></script>
