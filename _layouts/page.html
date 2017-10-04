@@ -10,27 +10,33 @@
 	<meta name="viewport" content="width=device-width">
 	<!--inline styles-->
 	<style>
-		body{max-width: 27em; margin: 3em auto; padding: 0 .5em; font-size: 150%; line-height: 1.5em; color: #333;}
-		.header{text-align: center;}
-		.footer{margin-top: 1em; padding-top: 1em;font-size: 80%; text-align: center; border-top: 1px solid #aaa;}
-		h1{margin-bottom: 0; font-size: 2.666em; line-height: 1.2em; text-align: center;}
-		h2{font-size: 1.666em; color: #888;}
-		hr{width: 80%; margin: 0 auto; border-top: 1px solid #ccc; border-bottom: 0;}
-		button{padding: 4px 8px; border: 0; background-color: #ccc; color: #333; font-family: inherit; font-size: inherit;}
-		button:hover{background-color: #eee;}
-		#save-bookmark{position: fixed; top: 0; right: .5em; margin: 0; }
+		body{margin: 0; padding: 0; font-size: 1.125rem; line-height: 1.6em; color: #333;}
+		header{background-color: #eee; padding: 1rem 2rem; overflow: hidden;}
+		header p{display: inline-block; margin-left: 1rem; font-size: .875rem;}
+		footer{margin-top: 1em; padding-top: 1em;font-size: 80%; text-align: center; border-top: 1px solid #aaa;}
+		article{max-width: 27em; margin: 3em auto; padding: 0 2rem;}
+		h1{display: inline-block; margin-bottom: 0; font-size: 1.25rem; line-height: 1.2em; text-transform: uppercase; letter-spacing: 1px;}
+		h2{margin-top: 6rem; padding-bottom: 1rem; margin-bottom: 3rem; font-size: 1rem; text-transform: uppercase; letter-spacing: 2px; border-bottom: 1px solid #333;}
+		hr{width: 40%; margin: 2rem auto; border-top: 1px solid #333; border-bottom: 0;}
+		button{cursor: pointer; margin-left: .5rem; padding: .75rem 1.5rem; border: 0; background-color: #ccc; color: #333; text-transform: uppercase; letter-spacing: 1px;}
+		button:hover{opacity: .7;}
+		.buttons{position: fixed; top: 1.5rem; right: 2rem;}
 		.confirm{width: 100%; display: none; position: fixed; top: 0; left: 0;background-color: #f8f8f8;}
 		.confirm button{float: right; margin-right: 1em; }
 		#resume{padding-bottom: 1em;}
+		.night-mode{ background-color: #333;}
+		.night-mode article > *{color: #f8f8f8; border-color: #f8f8f8;}
 	</style>
 </head>
 <body>
 	<header>
 		<h1 id='the_poisoned_well'>The Poisoned Well</h1>
-		<p>50360 words</p>
-		<p>Go to <a href='#update'>the last update</a>.</p>
+		<p>50360 words | Go to <a href='#update'>the last update</a></p>
+		<div class="buttons">
+			<button id="night-mode">NightMode</button>
+			<button id="save-bookmark">Bookmark</button>
+		</div>
 	</header>
-	<button id="save-bookmark">Bookmark</button>
 	<div class="confirm" id="resume">
 		<p>Do you want to pick up reading where you left off last time?</p>
 		<button id="confirm-ok">Ok</button>
@@ -47,9 +53,13 @@
  <script src="js/jquery.cookie.js"></script>
  <script>
  	$(document).ready(function(){
- 		
+
  		init();
- 		
+
+		$('#night-mode').click(function(){
+			$('body').toggleClass('night-mode');
+		})
+
  		$('#save-bookmark').click(function(){
  			$('article p:in-viewport').each(function(){
  				$(this).addClass('reading');
@@ -57,22 +67,22 @@
  			$('article p:above-the-top').each(function(){
  				$(this).removeClass('reading');
  			});
- 			
+
  			var i = $('article p').index($('.reading'));
- 			
+
  			console.log(i);
  			$('article p').eq(i).attr('id', 'bookmark');
- 			
+
  			$.cookie('bookmark', i);
- 			
+
  			$('#saved').slideDown().delay(3000).slideUp();
- 			
+
  			return false;
  		});
- 		
+
  		function init(){
  			var i = $.cookie('bookmark');
- 		
+
 	 		if (i){
 	 			$('#resume').slideDown();
 	 			$('#confirm-ok').click(function(){
@@ -83,11 +93,11 @@
 	 			$('#confirm-cancel').click(function(){
 	 				$('#resume').slideUp();
 	 			});
-	 			
+
 	 			$.removeCookie('bookmark');
 	 		}
  		};
- 		
+
  	});
  </script>
 </body>
